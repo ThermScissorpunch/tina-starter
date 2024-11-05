@@ -1,7 +1,8 @@
 ---
 title: Test
 blocks:
-  - body: ''
+  - body: |
+      Yoooo
     _template: content
 ---
 

@@ -9,7 +9,7 @@ export default async function PostPage({
   params: { filename: string[] };
 }) {
   const data = await client.queries.post({
-    relativePath: `${params.filename.join("/")}.mdx`,
+    relativePath: `${params.filename.join("/")}.md`,
   });
 
   return (

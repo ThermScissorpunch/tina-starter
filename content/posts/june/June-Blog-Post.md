@@ -1,5 +1,6 @@
 ---
 title: June Blog Post
+slug: june-blog-post
 heroImg: /uploads/llama-2.avif
 excerpt: |
   Testing nested content

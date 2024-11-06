@@ -1,5 +1,6 @@
 ---
 title: "Just Another Blog Post"
+slug: just-another-blog-post
 heroImg: /uploads/unsplash-lylCw4zcA7I.jpg
 excerpt: >
   Lorem markdownum evinctus ut cape adhaeret gravis licet progenies ut haesit

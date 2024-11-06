@@ -19,6 +19,12 @@ const Post: Collection = {
       required: true,
     },
     {
+      type: "string",
+      label: "Slug",
+      name: "slug",
+      required: true,
+    },
+    {
       type: "image",
       name: "heroImg",
       label: "Hero Image",

@@ -1,5 +1,6 @@
 ---
 title: Vote For Pedro
+slug: vote-for-pedro
 heroImg: /uploads/unsplash-lylCw4zcA7I.jpg
 excerpt: >
   Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor

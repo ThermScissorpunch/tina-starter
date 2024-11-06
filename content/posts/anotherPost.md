@@ -11,7 +11,7 @@ date: "2021-07-12T07:00:00.000Z"
 
 # Vote For Pedro
 
-Hello, the current date is <DateTime format="local" />. Quis semper [vulputate](https://example.com) aliquam venenatdis egestas sagittis quisque orci. Donec commodo sdit viverra aliquam porttitor ultrices gravida eu. Tincidunt leo, elementum mattis elementum ut nisl, justo, amet, mattis. Nunc purus, diam cdommodo tincidunt turpis. Amet, duis sed elit interdum dignissim
+Hello, Quis semper [vulputate](https://example.com) aliquam venenatdis egestas sagittis quisque orci. Donec commodo sdit viverra aliquam porttitor ultrices gravida eu. Tincidunt leo, elementum mattis elementum ut nisl, justo, amet, mattis. Nunc purus, diam cdommodo tincidunt turpis. Amet, duis sed elit interdum dignissim
 
 ---
 
@@ -29,18 +29,6 @@ query MyQuery($relativePath: String!) {
 
 Quis semper [vulputate](https://example.com) aliquam venenatdis egestas sagittis quisque orci. Donec commodo sit viverra aliquam porttitor ultrices gravida eu. Tincidunt leo, elementum mattis elementum ut nisl, justo, amet, mattis. Nunc purus, diam cdommodo tincidunt turpis. Amet, duis sed elit interdum dignissim
 
-<NewsletterSignup
-  placeholder="Enter your email"
-  buttonText="Notify Me"
-  disclaimer={<>
-    We care about the protection of your data. Read our [Privacy Policy](http://example.com).
-  </>}
->
-  ## Stay in touch!
-
-Anim aute id magna aliqua ad ad non deserunt sunt. Qui irure qui Lorem cupidatat commodo. Elit sunt amet fugiat veniam occaecat fugiat.
-
-</NewsletterSignup>
 
 ### 3 Reasons to vote for Pedro
 
@@ -57,6 +45,3 @@ Anim aute id magna aliqua ad ad non deserunt sunt. Qui irure qui Lorem cupidatat
 
 ---
 
-<BlockQuote authorName="Uncle Rico">
-  How much you wanna make a bet I can throw a football over them mountains?
-</BlockQuote>

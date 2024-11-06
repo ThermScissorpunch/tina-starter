@@ -2,7 +2,7 @@
 title: Test
 blocks:
   - body: |
-      Yoooo
+      Halloowwwww
     _template: content
 ---
 

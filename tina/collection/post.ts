@@ -4,7 +4,7 @@ const Post: Collection = {
   label: "Blog Posts",
   name: "post",
   path: "content/posts",
-  format: "mdx",
+  format: "md",
   ui: {
     router: ({ document }) => {                  
       return `/posts/${document._sys.breadcrumbs.join("/")}`;

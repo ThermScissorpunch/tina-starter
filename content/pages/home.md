@@ -5,7 +5,7 @@ blocks:
     text: |
       # Praktijk 123
 
-      Lorum ipsum
+      Lorum ipsum hallo 123
 
       ![](/uploads/llama-2.avif)
     text2: >

@@ -2,20 +2,12 @@
 title: Tina Cloud Starter
 blocks:
   - headline: Test 123
-    text: >
-      ## **Hallo**
+    text: |
+      # Praktijk 123
 
+      Lorum ipsum
 
-      **Click this box to start editing it**. You will see the matching field
-      appear in the left sidebar for you to make changes. The edits will show in
-      this live preview. In that left panel, you can also navigate around the
-      page to change what you are editing (or just click a component here in the
-      preview, like you did before).
-
-
-      **Clicking 'Save' won't do anything in this demo** - but on your site it
-      will save the changes immediately or send an approval request to your team
-      for review.
+      ![](/uploads/llama-2.avif)
     text2: >
       ## Developers
 

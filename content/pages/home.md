@@ -1,7 +1,7 @@
 ---
 title: Tina Cloud Starter
 blocks:
-  - headline: WSNL Blog Test
+  - headline: Test 123
     text: >
       ## **Hallo**
 

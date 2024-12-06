@@ -1,7 +1,7 @@
 ---
 title: Tina Cloud Starter
 blocks:
-  - headline: Test 123
+  - headline: 'Kopje :-)'
     text: |
       # Praktijk 123
 

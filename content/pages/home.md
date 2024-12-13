@@ -1,9 +1,10 @@
 ---
 title: Tina Cloud Starter
 blocks:
-  - headline: 'Kopje :-)'
+  - tagline: this is the tagline!
+    headline: 'Kopje :-)'
     text: |
-      # Mooi 567
+      ## Mooi 567
 
       Lorum ipsum hallo 123
 
@@ -27,7 +28,7 @@ blocks:
         icon: false
         link: /posts
     image:
-      src: ''
+      src: /uploads/high_end_w_wide_v3.jpg
       alt: >-
         Photo of palm trees at sunset by Adam Birkett -
         unsplash.com/photos/75EFpyXu3Wg

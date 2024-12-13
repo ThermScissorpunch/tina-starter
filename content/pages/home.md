@@ -3,7 +3,7 @@ title: Tina Cloud Starter
 blocks:
   - headline: 'Kopje :-)'
     text: |
-      # Praktijk 123
+      # Mooi 567
 
       Lorum ipsum hallo 123
 

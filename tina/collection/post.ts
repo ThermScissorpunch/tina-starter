@@ -6,11 +6,17 @@ const Post: Collection = {
   path: "content/posts",
   format: "md",
   ui: {
-    router: ({ document }) => {                  
+    router: ({ document }) => {
       return `/posts/${document._sys.breadcrumbs.join("/")}`;
     },
   },
   fields: [
+    {
+      name: 'category',
+      label: 'Category',
+      type: 'string',
+      options: ['Blog', 'Editorial', 'Collaboration', 'Interview', 'Podcast', 'New Drop'],
+    },
     {
       type: "string",
       label: "Title",

@@ -1,7 +1,7 @@
 ---
 category: Collaboration
-title: Colab with P Diddy
-slug: pdiddy
+title: Colab with Adidas
+slug: bomen
 heroImg: /uploads/unsplash-75EFpyXu3Wg.jpg
 excerpt: |
   Lorum ipsum

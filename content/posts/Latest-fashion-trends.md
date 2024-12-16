@@ -15,3 +15,7 @@ Test 1234
 * list 3
 
 DIt IS DE BODY!!!
+
+[Dit is een linkje](https://www.winkelstraat.nl/dames)
+
+![](/uploads/llama-4.avif)

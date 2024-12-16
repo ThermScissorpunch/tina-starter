@@ -1,6 +1,6 @@
 ---
-category: Collaborations
-title: "Just Another Blog Post"
+category: Blog
+title: Just Another Blog Post
 slug: just-another-blog-post
 heroImg: /uploads/unsplash-lylCw4zcA7I.jpg
 excerpt: >
@@ -8,14 +8,14 @@ excerpt: >
   maxima ille. Est scorpius, mori vel in visaeque Haemoniis viperei furoris e ad
   vasti, distulit. Crudus sub coniuge iam: dea propera sive
 author: content/authors/wsnl.md
-date: "2021-07-12T07:00:00.000Z"
+date: 2021-07-12T07:00:00.000Z
 ---
 
 # Vote For Pedro
 
 Hello, Quis semper [vulputate](https://example.com) aliquam venenatdis egestas sagittis quisque orci. Donec commodo sdit viverra aliquam porttitor ultrices gravida eu. Tincidunt leo, elementum mattis elementum ut nisl, justo, amet, mattis. Nunc purus, diam cdommodo tincidunt turpis. Amet, duis sed elit interdum dignissim
 
----
+***
 
 ```graphql
 query MyQuery($relativePath: String!) {
@@ -33,9 +33,9 @@ Quis semper [vulputate](https://example.com) aliquam venenatdis egestas sagittis
 
 ### 3 Reasons to vote for Pedro
 
-- Anim aute id magna aliqua ad ad non deserunt sunt
-- Qui irure qui Lorem cupidatat commodo. Elit sunt amet fugiat veniam occaecat fugiat.
-- Lorem markdownum evinctus ut cape adhaeret gravis licet progenies ut haesit maxima ille. Est scorpius, mori vel in visaeque Haemoniis viperei furoris e ad vasti, distulit. Crudus sub coniuge iam: dea propera sive?
+* Anim aute id magna aliqua ad ad non deserunt sunt
+* Qui irure qui Lorem cupidatat commodo. Elit sunt amet fugiat veniam occaecat fugiat.
+* Lorem markdownum evinctus ut cape adhaeret gravis licet progenies ut haesit maxima ille. Est scorpius, mori vel in visaeque Haemoniis viperei furoris e ad vasti, distulit. Crudus sub coniuge iam: dea propera sive?
 
 ### 3 More Reasons to vote for Pedro
 
@@ -44,4 +44,4 @@ Quis semper [vulputate](https://example.com) aliquam venenatdis egestas sagittis
    . Elit sunt amet fugiat veniam occaecat fugiat.
 3. Lorem markdownum evinctus ut cape adhaeret gravis licet progenies ut haesit maxima ille. Est scorpius, mori vel in visaeque Haemoniis viperei furoris e ad vasti, distulit. Crudus sub coniuge iam: dea propera sive?
 
----
+***

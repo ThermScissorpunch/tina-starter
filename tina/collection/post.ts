@@ -15,7 +15,7 @@ const Post: Collection = {
       name: 'category',
       label: 'Category',
       type: 'string',
-      options: ['Blog', 'Editorial', 'Collaboration', 'Interview', 'Podcast', 'New Drop'],
+      options: ['Blogs', 'Editorials', 'Collaborations', 'Interviews', 'Podcasts', 'New Drops'],
     },
     {
       type: "string",

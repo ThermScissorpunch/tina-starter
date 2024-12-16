@@ -1,11 +1,11 @@
 ---
-category: Interview
+category: Interviews
 title: Interview with Justin
 slug: interview-justin
 heroImg: /uploads/llama-3.avif
 excerpt: |
   Test 123
-author: content/authors/pedro.md
+author: content/authors/wsnl.md
 date: 2024-12-02T23:00:00.000Z
 ---
 

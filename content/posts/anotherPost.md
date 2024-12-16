@@ -1,4 +1,5 @@
 ---
+category: Collaborations
 title: "Just Another Blog Post"
 slug: just-another-blog-post
 heroImg: /uploads/unsplash-lylCw4zcA7I.jpg
@@ -6,7 +7,7 @@ excerpt: >
   Lorem markdownum evinctus ut cape adhaeret gravis licet progenies ut haesit
   maxima ille. Est scorpius, mori vel in visaeque Haemoniis viperei furoris e ad
   vasti, distulit. Crudus sub coniuge iam: dea propera sive
-author: content/authors/napolean.md
+author: content/authors/wsnl.md
 date: "2021-07-12T07:00:00.000Z"
 ---
 

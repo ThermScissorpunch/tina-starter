@@ -1,5 +1,5 @@
 ---
-category: Blog
+category: Blogs
 title: Just Another Blog Post
 slug: just-another-blog-post
 heroImg: /uploads/unsplash-lylCw4zcA7I.jpg

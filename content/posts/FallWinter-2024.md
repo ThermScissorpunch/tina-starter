@@ -9,7 +9,7 @@ excerpt: >
   samenkomen. Dit seizoen draait om beweging, evolutie en het samenspel van
   traditie en innovatie—een collectie die stijl naar een hoger niveau tilt en de
   nieuwe definitie van luxe tot leven brengt.
-author: content/authors/wsnl.md
+author: content/authors/Justin.md
 date: 2024-12-16T23:00:00.000Z
 ---
 

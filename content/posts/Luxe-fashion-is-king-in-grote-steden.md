@@ -5,7 +5,7 @@ slug: luxe-fashion-is-king-in-grote-steden
 heroImg: /uploads/persbericht-fashion-king-in-grote-steden.png
 excerpt: |
   Bonbedrag jongeren in steden hoger dan generatiegenoten uit dorpen
-author: ''
+author: content/authors/wsnl.md
 date: 2021-07-12T22:00:00.000Z
 ---
 

@@ -1,7 +1,7 @@
 ---
 category: Blogs
 title: Blog over schoenen
-slug: Intro
+slug: nice-url
 heroImg: /uploads/llama-5.avif
 excerpt: |
   Intro tekst

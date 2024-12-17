@@ -11,7 +11,7 @@ date: 2021-07-12T22:00:00.000Z
 
 Luxe fashion lijkt steeds meer de standaard te worden voor jongeren in de Randstad. Ze twijfelen niet lang om gemiddeld meer dan 200 euro uit te geven als ze online shoppen. Generatiegenoten in de provincie houden echter wat meer de hand op de knip. Waar jonge inwoners in dorpen gemiddeld 140 euro per transactie uitgeven, is dat in steden rond de 200 euro. Dit blijkt uit meer dan 200.000 transacties bij de ruim 300 kledingwinkels die luxe fashion, sneakers en accessoires verkopen via Winkelstraat.nl.
 
-![Top 10 steden met gemiddeld hoogste orderbedrag.](/uploads/persbericht-fashion-king-in-grote-steden.png "Top 10 steden met gemiddeld hoogste orderbedrag.")
+![Top 10 steden met gemiddeld hoogste orderbedrag.](/uploads/persbericht-fashion-king-in-grote-steden.png "Top 10 steden met gemiddeld hoogste orderbedrag.")Top 10 steden met gemiddeld hoogste orderbedrag.
 
 Van de tien grootste Nederlandse steden spannen jongeren in Almere de kroon met een gemiddeld orderbedrag van 226 euro, gevolgd door Rotterdam met 210 euro en Amsterdam 208 euro. De jonge generatie in Nijmegen is met 179 euro het meest spaarzaam, en ook in Eindhoven ligt het gemiddelde bestelbedrag een stuk lager: 188 euro. In tegenstelling tot de verschillen in uitgaven is de populariteit van merken overal gelijk. Het Italiaanse Dsquared2 is bij uitstek het populairst, gevolgd door Parajumpers en Airforce. Het luxe merk Balenciaga is met name populair in Amsterdam.
 

@@ -29,6 +29,7 @@ const Post: Collection = {
       label: "Slug",
       name: "slug",
       required: true,
+      description: 'Use lowercase letters only',
     },
     {
       type: "image",

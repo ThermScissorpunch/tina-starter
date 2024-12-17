@@ -9,6 +9,8 @@ author: content/authors/wsnl.md
 date: 2021-12-31T23:00:00.000Z
 ---
 
+![](/uploads/Infographic-fashion-monitor.png)
+
 88% KOOPT LIEVER NIEUWE SNEAKERS dan dat ze geld spenderen aan een vakantie, de sportschool of gadgets.
 
 1/3 ZET DAAR JAARLIJKS €250 tot €500 VOOR OPZIJ - Eén op de vijf jongeren zegt meer dan €1.000.

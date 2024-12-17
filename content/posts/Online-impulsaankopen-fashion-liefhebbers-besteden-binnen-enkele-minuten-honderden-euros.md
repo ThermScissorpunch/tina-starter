@@ -1,12 +1,11 @@
 ---
 category: News
-title: >-
-  Online impulsaankopen: fashion liefhebbers besteden binnen enkele minuten
-  honderden euro’s
+title: Online impulsaankopen
 slug: impulsaankopen-van-luxe-fashion-opkomende-trend-onder-nederlandse-jongeren
 heroImg: /uploads/impulsaankopen.jpg
-excerpt: |
-  Impulsaankopen van luxe fashion opkomende trend onder Nederlandse jongeren
+excerpt: >
+  Fashion liefhebbers besteden binnen enkele minuten honderden euro’s.
+  Impulsaankopen van luxe fashion opkomende trend onder Nederlandse jongeren.
 author: content/authors/wsnl.md
 date: 2021-06-23T22:00:00.000Z
 ---

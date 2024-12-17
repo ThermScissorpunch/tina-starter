@@ -5,7 +5,7 @@ slug: nice-url
 heroImg: /uploads/llama-5.avif
 excerpt: |
   Intro tekst
-simpleAuthor: WSNL
+author: content/authors/wsnl.md
 date: 2024-12-13T23:00:00.000Z
 ---
 

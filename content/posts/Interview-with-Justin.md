@@ -5,7 +5,7 @@ slug: interview-justin
 heroImg: /uploads/llama-3.avif
 excerpt: |
   Test 123
-simpleAuthor: WSNL
+author: content/authors/wsnl.md
 date: 2024-12-02T23:00:00.000Z
 ---
 

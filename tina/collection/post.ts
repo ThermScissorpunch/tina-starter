@@ -42,10 +42,10 @@ const Post: Collection = {
       name: "excerpt",
     },
     {
-      type: "reference",
+      type: "string",
       label: "Author",
       name: "author",
-      collections: ["author"],
+      required: true,
     },
     {
       type: "datetime",

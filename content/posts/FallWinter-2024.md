@@ -17,4 +17,6 @@ In een wereld waarin stijl en identiteit hand in hand gaan, introduceren wij onz
 
 De editorial vangt beweging en evolutie: van oversized silhouetten en technische stoffen tot verfijnde tailoring en expressieve streetwear-stijlen die de stedelijke cultuur weerspiegelen. Dit seizoen belichaamt het gevoel van vooruitgang—een combinatie van moeiteloze vrijheid en verfijning. Denk aan vloeiende lijnen, rijke texturen, en monochrome contrasten, die samen de esthetiek van New Luxury perfect vangen.
 
+![](/uploads/styles.png)
+
 Voor de moderne garderobe die niet in hokjes te plaatsen is, brengt Fall/Winter 2024 een gedurfde dialoog tussen de gevestigde namen en opkomende lokale labels. High-End ontmoet straatcultuur, Contemporary wordt Premium, en Local Streetwear daagt conventies uit. Ontdek deze nieuwe golf van luxe, waar stijl niet alleen gedragen wordt, maar geleefd.

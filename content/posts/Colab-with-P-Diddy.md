@@ -5,7 +5,7 @@ slug: bomen
 heroImg: /uploads/unsplash-75EFpyXu3Wg.jpg
 excerpt: |
   Lorum ipsum
-author: WSNL
+simpleAuthor: WSNL
 date: 2024-12-17T23:00:00.000Z
 ---
 

@@ -44,7 +44,7 @@ const Post: Collection = {
     {
       type: "string",
       label: "Author",
-      name: "author",
+      name: "simpleAuthor",
       required: true,
     },
     {

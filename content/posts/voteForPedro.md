@@ -8,7 +8,7 @@ excerpt: >
   incididunt ut labore et dolore magna aliqua. Praesent elementum facilisis leo
   vel fringilla est ullamcorper eget. At imperdiet dui accumsan sit amet nulla
   facilities morbi tempus.
-author: WSNL
+simpleAuthor: WSNL
 date: 2021-07-03T20:30:00.000Z
 ---
 

@@ -1,5 +1,5 @@
 ---
-category: Collaboration
+category: Collaborations
 title: Vote For Pedro
 slug: vote-for-pedro
 heroImg: /uploads/unsplash-lylCw4zcA7I.jpg

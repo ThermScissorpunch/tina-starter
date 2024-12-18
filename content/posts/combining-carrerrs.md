@@ -7,7 +7,7 @@ excerpt: >
   Diede Vermeesch over haar reis in de dans- en modellenindustrie en hoe ze deze
   twee carrières combineert.
 author: content/authors/wsnl.md
-date: 2024-10-15T22:00:00.000Z
+date: 2024-10-03T22:00:00.000Z
 ---
 
 In de derde aflevering van het tweede seizoen van **Brand News**, gepresenteerd door [Charlotte Emily](https://www.instagram.com/charlotteemilyb/), duiken we in de wereld van dans en modellenwerk met [Diede Vermeesch](https://www.instagram.com/diedevermeesch/). Diede deelt haar persoonlijke reis van haar eerste stappen in de danswereld tot haar succesvolle combinatie van dans en modellenwerk. Ze biedt inzichten in de creatieve industrie en het belang van het volgen van je passies.

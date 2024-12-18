@@ -22,4 +22,4 @@ Beluister de aflevering - Wil je meer horen over Karim's inspirerende reis? Belu
 
 \[youtube: 1r2hMKepqO0]
 
-\[spotify: 4CWqzvZKczI9Dda5UcTt4m]
+\[spotify: 6o8UjpC801cTEmt7xkoehO]

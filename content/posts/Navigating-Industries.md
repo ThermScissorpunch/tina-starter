@@ -21,3 +21,5 @@ In de eerste aflevering van het tweede seizoen van Brand News, gepresenteerd doo
 Beluister de aflevering - Wil je meer horen over Karim's inspirerende reis? Beluister de volledige aflevering van Brand News via [Spotify](https://open.spotify.com/episode/6o8UjpC801cTEmt7xkoehO), [Apple Podcasts](https://podcastsconnect.apple.com/login?targetUrl=%2Fmy-podcasts%2Fshow%2Fbrand-news%2Fa3887123-a575-48a0-adad-78c5f1901f00%2Fepisode%2Fnavigating-industries-from-daily-paper-sales-to-complex-creative%2F042c8cc2-e2fe-4e0f-9900-70e79e44c4f5\&authResult=FAILED) of [Amazon Music](https://podcasters.amazon.com/podcasts/41e8acae-a62a-4f3b-ad9b-c3a3f8b95e19/episodes/17a094a3-f25f-4516-916c-74f1daaee225).
 
 \[youtube: zCN9dXd-0A4]
+
+\[spotify: 4CWqzvZKczI9Dda5UcTt4m]

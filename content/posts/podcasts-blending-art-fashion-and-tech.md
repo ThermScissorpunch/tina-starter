@@ -7,7 +7,7 @@ excerpt: >
   Isabel Udo over de toekomst van kunst en technologie met augmented reality
   (AR) en AI.
 author: content/authors/wsnl.md
-date: 2024-10-15T22:00:00.000Z
+date: 2024-09-19T22:00:00.000Z
 ---
 
 In de tweede aflevering van het tweede seizoen van *Brand News*, gepresenteerd door [Charlotte Emily](https://www.instagram.com/charlotteemilyb/), duiken we in de wereld van digitale kunst en technologie met [Isabel Udo](https://www.instagram.com/isabelle.udo/), oprichter en creatief directeur van videOrbit Studio. Isabel deelt haar ervaringen als digitale kunstenaar en hoe ze technologie, mode en kunst samenbrengt in unieke augmented reality (AR) ervaringen. Deze aflevering biedt inzichten in de snelle ontwikkelingen van AR en AI en hoe deze de mode- en beauty-industrie beïnvloeden.

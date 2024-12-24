@@ -32,3 +32,7 @@ Gini heeft gewerkt aan projecten voor gerenommeerde merken zoals H\&M, Adidas en
 Beluister de aflevering - Wil je meer horen over Gini’s inspirerende reis in de creatieve wereld van set design? Beluister de volledige aflevering van Brand News via [Spotify](https://open.spotify.com/episode/3uES0GifszUrpYEZ4CrKvF), [Apple Podcasts](https://podcasts.apple.com/nl/podcast/what-does-a-set-designer-do-inside-the-world/id1719125980?i=1000675318341) of [Amazon Music](https://music.amazon.com/es-us/podcasts/41e8acae-a62a-4f3b-ad9b-c3a3f8b95e19/episodes/9e0c58ef-524c-47d8-b094-450ef5c57601/brand-news-what-does-a-set-designer-do-inside-the-world-of-a-creative-set-design-artist).
 
 Dit seizoen introduceert ook video, waarbij volledige afleveringen te zien zijn op [YouTube](https://www.youtube.com/watch?v=tqMZn4y2X-A\&list=PLN_79nNFEYSN1NMBzM4yf3FV9BSiCC1_j\&index=2).
+
+\[youtube: tqMZn4y2X-A]
+
+\[spotify: 3uES0GifszUrpYEZ4CrKvF]

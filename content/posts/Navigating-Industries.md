@@ -6,7 +6,7 @@ heroImg: /uploads/karim.jpg
 excerpt: |
   Karim Flores Afifi over zijn loopbaan in mode en muziek.
 author: content/authors/wsnl.md
-date: 2024-09-05T22:00:00.000Z
+date: 2024-09-04T22:00:00.000Z
 ---
 
 In de eerste aflevering van het tweede seizoen van **Brand News**, gepresenteerd door [Charlotte Emily](https://www.instagram.com/charlotteemilyb/), krijgen we een kijkje in de fascinerende carrière van [Karim Flores Afifi](https://www.instagram.com/karimfloresafifi/). Karim deelt zijn reis van werken bij [Daily Paper](https://www.winkelstraat.nl/designers/daily-paper) naar zijn huidige rol als Creative Lead. Deze aflevering raakt thema's zoals mode, muziek, en creatieve groei aan. Ontdek hoe Karim zijn passies in verschillende industrieën heeft gecombineerd en wat zijn inzichten zijn voor carrière veranderaars.

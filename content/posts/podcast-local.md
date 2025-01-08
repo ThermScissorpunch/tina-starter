@@ -21,6 +21,6 @@ In deze aflevering van **Brand News**, gepresenteerd door [Charlotte Emily](http
 
 **Beluister de aflevering** - Wil je meer horen over de reis van Filling Pieces en hun groei van een lokale startup naar een internationaal merk? Beluister de volledige aflevering van Brand News via [Spotify](https://open.spotify.com/episode/4CWqzvZKczI9Dda5UcTt4m), [Apple Podcasts](https://podcasts.apple.com/nl/podcast/from-local-startup-to-global-presence-the-filling/id1719125980?i=1000673547052), of [Amazon Music](https://music.amazon.com.br/podcasts/41e8acae-a62a-4f3b-ad9b-c3a3f8b95e19/episodes/8c94bbbf-2fcb-410f-93b3-7412e4b583c2/brand-news-from-local-startup-to-global-presence-the-filling-pieces-story).
 
-\[spotify: 4CWqzvZKczI9Dda5UcTt4m]
-
 \[youtube: zCN9dXd-0A4]
+
+\[spotify: 4CWqzvZKczI9Dda5UcTt4m]

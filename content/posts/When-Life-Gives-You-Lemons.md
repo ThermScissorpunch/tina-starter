@@ -25,6 +25,6 @@ In deze aflevering van het tweede seizoen van **Brand News**, gepresenteerd door
 
 Wil je meer weten over Bram’s reis en zijn visie op mode? Beluister de volledige aflevering van Brand News via [Spotify](https://open.spotify.com/episode/2PNCYvmogv8ROMTqWc1TG9), [Apple Podcasts](https://podcasts.apple.com/nl/podcast/when-life-gives-you-lemons-the-rise-of-brams-fruit/id1719125980?i=1000677062389) of [Amazon Music](https://music.amazon.co.uk/podcasts/41e8acae-a62a-4f3b-ad9b-c3a3f8b95e19/episodes/722ff933-b3be-4382-b760-81e7df9fea5b/brand-news-when-life-gives-you-lemons-the-rise-of-bram's-fruit).
 
-\[youtube: dpy-khdvSck\&t]
+\[youtube: dpy-khdvSck]
 
 \[spotify: 2PNCYvmogv8ROMTqWc1TG9]

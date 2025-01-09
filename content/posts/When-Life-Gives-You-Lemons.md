@@ -13,7 +13,7 @@ In deze aflevering van het tweede seizoen van **Brand News**, gepresenteerd door
 
 1.**Introductie** - De aflevering begint met een korte introductie van host Charlotte Emily, die de samenwerking met Winkelstraat.nl benoemt. Hierna introduceert ze Bram, de oprichter van het modemerk Bram's Fruit.
 
-2\. **De oorsprong van Bram's Fruit** *- *Het begon allemaal met een naam die zowel persoonlijk als filosofisch is. Bram, geïnspireerd door zijn jeugd, wilde een merk creëren dat zijn passie voor producten combineert met respect voor de natuur. *“Mijn ouders leerden me om verder te kijken dan materiële dingen en de waarde van relaties en de natuur te omarmen,”* vertelt Bram. Dit concept ligt ten grondslag aan Bram’s Fruit: een merk dat zowel producten als bewustzijn overbrengt.
+2\. **De oorsprong van Bram's Fruit** - Het begon allemaal met een naam die zowel persoonlijk als filosofisch is. Bram, geïnspireerd door zijn jeugd, wilde een merk creëren dat zijn passie voor producten combineert met respect voor de natuur. *“Mijn ouders leerden me om verder te kijken dan materiële dingen en de waarde van relaties en de natuur te omarmen,”* vertelt Bram. Dit concept ligt ten grondslag aan Bram’s Fruit: een merk dat zowel producten als bewustzijn overbrengt.
 
 3\. **De weg naar ondernemerschap** - Bram’s ondernemersreis begon met een samenwerking met zijn broer. Hoewel het avontuur succesvol was, besloot hij uiteindelijk zijn eigen pad te kiezen. Dit gaf hem de vrijheid om een unieke visie te ontwikkelen binnen de mode-industrie. *"We wilden allebei onze eigen stem vinden, en dat was de juiste keuze voor ons allebei."* Met een groeiend team van getalenteerde mensen richt Bram zich nu volledig op zijn eigen merk en het overbrengen van zijn visie.
 

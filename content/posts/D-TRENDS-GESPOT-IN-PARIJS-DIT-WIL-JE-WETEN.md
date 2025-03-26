@@ -66,5 +66,6 @@ om subtiliteit. Denk aan riemen met grote gespen, blazers met een western touch 
 natuurlijk de cowboyhoed. Flared jeans blijven, maar waar we eerst vooral voor een
 oversized look gingen, combineren we nu liever met strakkere silhouetten. De
 cowboycore-trend blijft, maar met een sophisticated randje.
-\
+
+
 Welke trend ga jij uitproberen dit seizoen?

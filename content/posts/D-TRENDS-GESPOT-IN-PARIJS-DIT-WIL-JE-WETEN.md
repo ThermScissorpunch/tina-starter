@@ -2,7 +2,7 @@
 category: Blogs
 title: 'DÉ TRENDS GESPOT IN PARIJS: DIT WIL JE WETEN'
 slug: paristrends
-heroImg: /uploads/Paris Trends/HERO.png
+heroImg: /uploads/HERO.png
 excerpt: >
   Winkelstraat.nl was aanwezig bij Paris Fashion Week 2025 en spotte de meest
 

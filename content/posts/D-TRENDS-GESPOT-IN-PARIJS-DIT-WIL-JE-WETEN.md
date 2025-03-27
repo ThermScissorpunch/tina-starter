@@ -62,8 +62,8 @@ must-have voor het nieuwe seizoen. De laarzen leken onmisbaar in de Parijse stra
 We zagen ze vooral in suède of leer, zwart of een statementkleur zoals rood. Het liefst
 met een wat puntige neus en halfhoge hak. Ook perfect om je streetwear outfit net een
 beetje meer vrouwelijkheid te geven. \
-![](/uploads/cowboy.png)**Cowboycore blijft**\
-\
+![](/uploads/cowboy.png)**Cowboycore blijft**
+
 Waar we in 2024 nog volop gingen voor dramatische western-invloeden, draait het nu
 om subtiliteit. Denk aan riemen met grote gespen, blazers met een western touch en
 natuurlijk de cowboyhoed. Flared jeans blijven, maar waar we eerst vooral voor een

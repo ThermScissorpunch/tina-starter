@@ -54,7 +54,7 @@ De Y2K-revival blijft populair en brengt ook voor het lente-seizoen een nieuwe t
 zich mee: de broek-rok combinatie. Love it or hate it, maar een rok of jurk over een
 broek is helemaal in. Bottega Veneta en Lacoste bewijzen dat deze noughties meets
 boho vibe verrassend stijlvol kan zijn. Combineer een mini-rok met een slim fit jeans of
-ga voor een midi-rok over een baggy broek voor een stoerdere look. \
+ga voor een midi-rok over een baggy broek voor een stoerdere look.\
 ![](/uploads/boots.png)**De halfhoge laars**
 
 Om in het kader van vintage vibes en de 2000’s te blijven: de halfhoge laars is een

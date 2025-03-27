@@ -61,7 +61,7 @@ Om in het kader van vintage vibes en de 2000’s te blijven: de halfhoge laars i
 must-have voor het nieuwe seizoen. De laarzen leken onmisbaar in de Parijse straten.
 We zagen ze vooral in suède of leer, zwart of een statementkleur zoals rood. Het liefst
 met een wat puntige neus en halfhoge hak. Ook perfect om je streetwear outfit net een
-beetje meer vrouwelijkheid te geven. \
+beetje meer vrouwelijkheid te geven.\
 ![](/uploads/cowboy.png)**Cowboycore blijft**
 
 Waar we in 2024 nog volop gingen voor dramatische western-invloeden, draait het nu

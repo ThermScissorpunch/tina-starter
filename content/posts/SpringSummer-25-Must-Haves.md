@@ -4,11 +4,26 @@ title: Waarom we massaal botergeel dragen
 slug: waarombotergeel
 heroImg: /uploads/Blog_photo.png
 excerpt: >
-  Het nieuwe modejaar staat voor de deur en Spring Summer 2025 belooft fris,
-  vernieuwend en vol karakter te zijn. Designers en merken zetten in op
-  contrasten: van ambachtelijke details tot hypermoderne snitten, van lokaal tot
-  luxe. Vijf stijlen springen eruit dit seizoen — elk met een eigen verhaal,
-  eigen codes, en vooral: eigen gevoel. Dit zijn dé stijlen om te kennen.
+  Hoewel we de afgelopen tijd gewend zijn geraakt aan kleuren zoals Barbieroze
+  en 
+
+  olijfgroen, is botergeel de kleur die dit seizoen niet te missen is. We willen
+  het liefst alles 
+
+  in botergeel. Wat deze zachte, maar levendige tint zo bijzonder maakt, is hoe
+  makkelijk 
+
+  het zich aanpast in streetwear en high fashion, maar ook in interieur.  
+
+
+
+  De kleur lijkt op het eerste gezicht misschien een beetje te ‘zacht’ voor de
+  mode van nu, 
+
+  maar niets is minder waar. Botergeel heeft zich snel bewezen als dé tint voor
+  de lente 
+
+  en zomer, en het is de perfecte manier om je garderobe op te frissen.
 author: content/authors/Justin.md
 date: 2025-04-21T22:00:00.000Z
 ---

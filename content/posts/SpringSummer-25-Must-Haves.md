@@ -1,7 +1,7 @@
 ---
 category: Blogs
 title: Spring/Summer '25 Must Haves
-slug: ss25musthaves
+slug: waarombotergeel
 heroImg: /uploads/new.jpg
 excerpt: >
   Het nieuwe modejaar staat voor de deur en Spring Summer 2025 belooft fris,

@@ -2,7 +2,7 @@
 category: Blogs
 title: Waarom we massaal botergeel dragen
 slug: waarombotergeel
-heroImg: /uploads/new.jpg
+heroImg: /uploads/Blog_photo.png
 excerpt: >
   Het nieuwe modejaar staat voor de deur en Spring Summer 2025 belooft fris,
   vernieuwend en vol karakter te zijn. Designers en merken zetten in op

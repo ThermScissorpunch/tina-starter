@@ -24,7 +24,7 @@ excerpt: >
   de lente 
 
   en zomer, en het is de perfecte manier om je garderobe op te frissen.
-author: content/authors/Justin.md
+author: content/authors/Luna.md
 date: 2025-04-21T22:00:00.000Z
 ---
 

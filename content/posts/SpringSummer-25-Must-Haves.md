@@ -1,6 +1,6 @@
 ---
 category: Blogs
-title: Spring/Summer '25 Must Haves
+title: Waarom we massaal botergeel dragen
 slug: waarombotergeel
 heroImg: /uploads/new.jpg
 excerpt: >

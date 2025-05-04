@@ -1,5 +1,5 @@
 ---
-category: Editorials
+category: Blogs
 title: Spring/Summer '25 Must Haves
 slug: ss25musthaves
 heroImg: /uploads/new.jpg
@@ -13,22 +13,40 @@ author: content/authors/Justin.md
 date: 2025-04-21T22:00:00.000Z
 ---
 
-New Luxury
-New Luxury draait niet meer om logo's of pure status, maar om kwaliteit, tijdloosheid en esthetische rust. Denk: zachte, natuurlijke materialen, rustige kleurenpaletten en perfect afgewerkte silhouetten. Merken zetten in op duurzaamheid en vakmanschap als het nieuwe statussymbool. Luxe voelt persoonlijk en understated aan.\
-\[products: 1834740,1830552,1839886]\
-\
-High End
-De High End-stijl blijft een wereld van precisie en verfijning. Verwacht dramatische volumes, opvallende materialen en couture-achtige details — maar met een frisse, lichtere touch die past bij het seizoen. Het draait om expressie zonder overdaad, waarbij elegantie moeiteloos samenkomt met innovatie.\
-\[products: 1834740,1830552,1839886]\
-\
-Contemporary
-Contemporary mode zit tussen commercieel draagbaar en artistiek vernieuwend in. Voor SS25 zien we veel multifunctionele stukken, slimme laagjes en speelse silhouetten. Denk aan asymmetrie, onverwachte materialenmixen en vernieuwde tailoring — ideaal voor een zelfbewuste generatie die stijl én comfort wil.\
-\[products: 1834740,1830552,1839886]\
-\
-Local Streetwear
-Deze stijl eert de identiteit van de straat, maar met een sterk lokaal accent. Merken grijpen terug naar hun roots en combineren die met globale invloeden. Verwacht unieke prints, lokale referenties en silhouettes die spelen met urban classics. SS25 maakt streetwear weer persoonlijk en cultureel geladen.\
-\[products: 1834740,1830552,1839886]\
-\
-Premium
-Premium is de brug tussen luxe en dagelijks draagbaar. Hier draait het om essentials met een upgrade: T-shirts met perfecte pasvorm, minimalistische sneakers, en accessoires die elk outfit optillen. Voor SS25 draait het bij Premium om subtiliteit, met oog voor detail en een gevoel van relaxed vertrouwen.\
-\[products: 1834740,1830552,1839886]
+Revival 
+
+Hoewel botergeel misschien niet meteen de eerste kleur is die je aan je garderobe 
+toevoegt, is het toch een kleur die zich al eerder heeft laten zien in de modewereld. We 
+zagen ‘m al eerder tijdens Copenhagen Fashion Week in 2024. Waar de kleur natuurlijk 
+al veel eerder is omarmd in de Scandinavische stijl. Al snel volgden het afgelopen jaar 
+de catwalk bij modehuizen als Jacquemus, Gucci en Dries Van Noten. En nu, in 2025, 
+blijft botergeel ons in de modewereld verrassen met zijn aanwezigheid. 
+
+
+Hoe je het draagt 
+
+Botergeel is allesbehalve moeilijk te combineren, het is juist de eenvoud die het zo 
+aantrekkelijk maakt. Het is een kleur die naadloos mengt met je favoriete basics. Maar 
+wat het écht spannend maakt, is hoe je het kunt combineren met andere trendkleuren 
+van dit seizoen. Het ziet er bijvoorbeeld geweldig uit naast bruin, een zachte pastelroze, 
+of zelfs ijsblauw. In een outfit kan je botergeel als statement gebruiken, bijvoorbeeld in 
+de vorm van een tas of een paar sneakers, of zelfs in de vorm van een complete look 
+zoals we zagen bij Gucci, waar botergeel werd gecombineerd met olijfgroen, oranje en 
+babyblauw. Het idee is om deze zachte tint te combineren met andere texturen en 
+kleuren die de outfit een beetje extra flair geven. 
+
+
+Waarom Botergeel 
+
+Botergeel is de perfecte balans tussen energie en subtiliteit. Het is niet te in-your-face, 
+maar geeft je outfit wel een frisse draai. Of je het nu draagt in een oversized hoodie, 
+een blazer of een simpele tas, deze zachte tint geeft altijd een luxe vibe zonder dat je 
+over de top hoeft te gaan.  
+
+
+Dus, de vraag is niet meer waarom we allemaal op roomboter willen lijken, maar hoe je 
+deze zachte, zonnige tint in je garderobe toevoegt. Het is een kleur die je outfit meteen 
+naar een hoger niveau tilt en die perfect past bij de casual-chic vibe die we dit seizoen 
+omarmen. Het is tijd om te smelten voor deze trendkleur, die ons dit seizoen een flinke 
+dosis zonneschijn en stijl brengt.
+

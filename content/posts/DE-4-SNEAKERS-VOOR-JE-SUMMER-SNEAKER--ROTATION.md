@@ -74,4 +74,5 @@ Y2K. Geen hype, maar een consistente stroom aan goed doordachte drops die zowel
 de doorgewinterde sneakerhead als de modebewuste consument weten te raken.
 
 Welke stijl je ook kiest, het belangrijkste is dat je gaat voor de sneaker die écht bij jou
-past. Zin om je rotatie een upgrade te geven? We hebben onze favorieten al voor je
+past. Zin om je rotatie een upgrade te geven? We hebben onze favorieten al voor je 
+klaarstaan om te shoppen.

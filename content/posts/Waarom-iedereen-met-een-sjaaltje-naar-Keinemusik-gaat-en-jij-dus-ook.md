@@ -35,4 +35,4 @@ om het gevoel ergens bij te horen.
 Op 5 juli in Amsterdam zal die scarf het verschil maken. Gelukkig hebben wij precies de
 juiste selectie. Lichtgewicht, stijlvol en ready to rave.
 
-\[products: 1930917,1825545, 1150644,1855953,1853424, 4b8ce324-e79b-49b7-bc1a-9223815bb6c4,1953015,eaea9562-8d7d-4b2f-9d9f-59406eeb94ae]
+\[products:1930917,1825545, 1150644,1855953,1853424, 4b8ce324-e79b-49b7-bc1a-9223815bb6c4,1953015,eaea9562-8d7d-4b2f-9d9f-59406eeb94ae]

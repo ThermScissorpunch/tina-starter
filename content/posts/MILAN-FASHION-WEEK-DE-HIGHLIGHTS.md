@@ -10,7 +10,9 @@ author: content/authors/Luna.md
 date: 2025-10-06T15:00:00.000Z
 ---
 
-Dario Vitale opent nieuw hoofdstuk bij Versace
+**Dario Vitale opent nieuw hoofdstuk bij Versace**
+
+
 Na decennia van familieleiderschap introduceerde Versace een frisse blik: Dario Vitale.
 Nooit eerder werd het modehuis bestuurd door een niet-Versace. Het debuut van Vitale
 liet gedurfde proporties en sexyness zien. Metallic bh-sets, bomber jacks en Miami
@@ -19,7 +21,9 @@ remix van ’80s glamour. \
 \
 ![](/uploads/BLOG_Bottega.png)
 
-Louise Trotter’s ambachtelijke poëzie bij Bottega Veneta
+**Louise Trotter’s ambachtelijke poëzie bij Bottega Veneta**
+
+
 Trotter transformeerde de catwalk in een laboratorium van textuur en techniek. Laser-
 cut franjes, herinterpretaties van intrecciato-leer, en een obsessieve aandacht voor
 movement maakten elke look een studie in tactiliteit. Zelfs de handgeblazen Murano-
@@ -28,7 +32,9 @@ verlengstuk van mode.
 
 ![](/uploads/BLOG_jilsander.png)
 
-Minimalisme herdefinieerd: Simone Bellotti bij Jil Sander
+**Minimalisme herdefinieerd: Simone Bellotti bij Jil Sander**
+
+
 Simone Bellotti bracht met zijn eerste Jil Sander-show een frisse dosis cool
 minimalisme terug naar Milaan. De SS26-collectie draaide om strakke lijnen en clean
 cuts maar met genoeg edge om het interessant te houden: bodycon-jurken met cut-
@@ -40,7 +46,9 @@ contrasterende banden.
 
 ![](/uploads/BLOG_Armani.png)
 
-Een monumentaal afscheid van Giorgio Armani
+**Een monumentaal afscheid van Giorgio Armani**
+
+
 De laatste show van Giorgio Armani voelde als een stijlvolle goodbye. Wat bedoeld was
 als een jubileumshow, werd na zijn overlijden een ode aan zijn legendarische stijl:
 zachte pakken, vloeiende jurken in zee- en aardetinten en die kenmerkende
@@ -49,7 +57,9 @@ met Armani’s gezicht erop liet een blijvende indruk achter.
 
 ![](/uploads/BLOG_Fendi.png)
 
-Colorblocking bij Fendi
+**Colorblocking bij Fendi**
+
+
 Fendi SS26 laat zien dat kleur het nieuwe statement is. Van hemelsblauw met wit, zoals
 een trainingsjack en ultrakorte shorts tot de dramatische mix van rood, paars en roze in
 transparante blouses, bralettes en bloemenrokken, en zelfs subtieler, grijs met roze,
@@ -59,7 +69,9 @@ het modehuis.
 
 ![](/uploads/BLOG_Diesel.png)
 
-De Diesel egg hunt
+**De Diesel egg hunt**
+
+
 En dan was er Diesel, dat de catwalk letterlijk de stad in bracht. Creative Director Glenn
 Martens transformeerde het centrum van Milaan in een openbare egg hunt: 55
 transparante, ei-vormige capsules verstopten complete SS26-looks, waardoor
@@ -69,7 +81,9 @@ experiment, speelsheid en onverwachte materialen.
 
 ![](/uploads/BLOG_Ferragamo.png)
 
-Ferragamo’s tassels en veren
+**Ferragamo’s tassels en veren**
+
+
 Maximilian Davis bracht een bijna choreografische dynamiek op de catwalk. Kwastjes,
 marabou-feathers en sierlijke accessoires dansten mee met elke stap, waardoor de
 collecties een lichte, bijna etherische kwaliteit kregen.

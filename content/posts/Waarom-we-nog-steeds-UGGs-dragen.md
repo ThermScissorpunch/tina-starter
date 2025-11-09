@@ -18,4 +18,4 @@ De laatste jaren laat UGG zien dat het wél kan spelen met context. Collabs met 
 
 ![](/uploads/ugg3.png)Foto: UGGx Y/Project/UGG x Sacai
 
-Misschien is dat wel het geheim van UGG: in een wereld vol paniekdrops, rebrands en micro-trends blijft de schoen herkenbaar. Comfort blijft ons aantrekken — niet omdat het een trend is, maar omdat we stiekem allemaal een beetje warmte zoeken in een wereld die soms te hard beweegt. En terwijl andere merken proberen alles tegelijk te zijn, doet UGG niks nieuws. En dat, blijkbaar, is precies waarom het blijft werken.
+Misschien is dat wel het geheim van UGG: in een wereld vol paniekdrops, rebrands en micro-trends blijft de schoen herkenbaar. Comfort blijft ons aantrekken en niet omdat het een trend is, maar omdat we stiekem allemaal een beetje warmte zoeken in een wereld die soms te hard beweegt. En terwijl andere merken proberen alles tegelijk te zijn, doet UGG niks nieuws. En dat, blijkbaar, is precies waarom het blijft werken.

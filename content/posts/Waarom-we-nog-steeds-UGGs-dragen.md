@@ -12,7 +12,7 @@ author: content/authors/Luna.md
 date: 2025-11-09T23:00:00.000Z
 ---
 
-Wat ooit begon als surfgear in Australië, groeide uit tot een wereldwijd icoon. De Classic Boot en de Ultra Mini zijn nooit echt veranderd — en dat hoeft ook niet. Elke generatie vindt er zijn eigen draai op. Het fluffy silhouet is simpel, bijna koppig in z’n design, maar past zich aan zonder ooit radicaal te transformeren. Het voelt vertrouwd, maar nooit saai.
+Wat ooit begon als surfgear in Australië, groeide uit tot een wereldwijd icoon. De Classic Boot en de Ultra Mini zijn nooit echt veranderd en dat hoeft ook niet. Elke generatie vindt er zijn eigen draai op. Het fluffy silhouet is simpel, bijna koppig in z’n design, maar past zich aan zonder ooit radicaal te transformeren. Het voelt vertrouwd, maar nooit saai.
 
 De laatste jaren laat UGG zien dat het wél kan spelen met context. Collabs met Telfar, Palace, Y/Project en zelfs Marc Jacobs bewijzen dat een subtiele twist genoeg is om een iconisch ontwerp telkens opnieuw relevant te maken. De Tazz slipper werd van huispantoffel een city essential, de Classic Mini groeide uit tot low-key statement, en platform-versies laten zien dat UGG ook durft te experimenteren met vorm en hoogte. Het zijn geen overhaaste hype-items, maar doordachte updates die precies die balans raken tussen comfort en cool.
 

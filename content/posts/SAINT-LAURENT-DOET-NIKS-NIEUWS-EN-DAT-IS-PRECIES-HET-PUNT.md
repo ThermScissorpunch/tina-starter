@@ -1,7 +1,7 @@
 ---
 category: Blogs
 title: 'SAINT LAURENT DOET NIKS NIEUWS, EN DAT IS PRECIES HET PUNT'
-slug: 'SAINT-LAURENT-DOET-NIKS-NIEUWS,-EN-DAT-IS-PRECIES-HET-PUNT'
+slug: 'saint-laurent-doet-niks-nieuws,-en-dat-is-precies-het-punt'
 heroImg: /uploads/LYST.png
 excerpt: >
   Saint Laurent staat weer bovenaan de Lyst Index, oftewel het mode-klassement
@@ -20,6 +20,6 @@ Wat opvalt, is dat het niet draait om een schreeuwerige trend of viral collab, m
 
 Misschien is dat precies waarom Gen Z valt voor Saint Laurent. De generatie die alles tegelijk wil: authenticiteit, esthetiek, identiteit, kiest nu voor iets wat geen paniek-rebrand nodig heeft. Terwijl andere merken zich verliezen in chaos (of in te veel collabs), houdt Saint Laurent gewoon z’n lijn vast: donker, cool, tijdloos. En blijkbaar is dat precies wat mensen willen in een algoritme-gedreven wereld die (soms) te veel probeert.
 
-Het is ook een kleine reality check voor de industrie. De Lyst Index is geen editorial hype, maar pure data. Clicks, views, wishlist-add-to’s, affiliate sales. Dus als Saint Laurent hier wint, dan betekent dat: mensen kopen het écht. 
+Het is ook een kleine reality check voor de industrie. De Lyst Index is geen editorial hype, maar pure data. Clicks, views, wishlist-add-to’s, affiliate sales. Dus als Saint Laurent hier wint, dan betekent dat: mensen kopen het écht.
 
 Uiteindelijk zegt deze topnotering niet alleen iets over Saint Laurent, maar over mode zelf. Misschien zijn we klaar met de volgende “core”. Misschien willen we merken die weten wie ze zijn. Met Consistentie en een duidelijke visie.

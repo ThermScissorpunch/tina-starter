@@ -1,7 +1,7 @@
 ---
 category: Blogs
 title: 'SAINT LAURENT DOET NIKS NIEUWS, EN DAT IS PRECIES HET PUNT'
-slug: 'saint-laurent-doet-niks-nieuws,-en-dat-is-precies-het-punt'
+slug: saint-laurent-doet-niks-nieuws-en-dat-is-precies-het-punt
 heroImg: /uploads/LYST.png
 excerpt: >
   Saint Laurent staat weer bovenaan de Lyst Index, oftewel het mode-klassement

@@ -1,7 +1,7 @@
 ---
 category: Blogs
-title: Waarom we nog steeds UGGs dragen
-slug: Waarom-we-nog-steeds-uggs-dragen
+title: WAAROM WE NOG STEEDS UGG'S DRAGEN
+slug: waarom-we-nog-steeds-uggs-dragen
 heroImg: /uploads/ugg2.png
 excerpt: >
   Er zijn maar weinig schoenen die telkens weer terugkomen zonder dat iemand

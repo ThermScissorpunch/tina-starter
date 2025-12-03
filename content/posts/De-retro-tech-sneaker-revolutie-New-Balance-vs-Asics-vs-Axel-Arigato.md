@@ -41,7 +41,7 @@ Bij [Axel Arigato](https://www.winkelstraat.nl/designers/axel-arigato) vind je v
 
 Om je keuze makkelijker te maken, zie je hieronder hoe de drie merken zich tot elkaar verhouden op gevoel en styling. Gebruik dit als snelle gids, en lees daarna het advies eronder om te bepalen welke richting het best bij jouw stijl past.
 
-![](/uploads/22637719_52618715_1000.jpg.png)
+![](/uploads/Vergelijking_sneakers.png)
 
 **Styling & combinaties**
 
@@ -60,7 +60,7 @@ Om je keuze makkelijker te maken, zie je hieronder hoe de drie merken zich tot e
 
 **Q2: Hoe kies ik tussen New Balance, Asics en Axel Arigato?**
 
-**A: **Ga op je stijlgevoel af. Hou je van relaxed en allround? Kijk dan naar New Balance. Wil je sportieve energie in je look? Dan past Asics. Voor clean en minimal is Axel Arigato een logische keuze.
+\*\*A: \*\*Ga op je stijlgevoel af. Hou je van relaxed en allround? Kijk dan naar New Balance. Wil je sportieve energie in je look? Dan past Asics. Voor clean en minimal is Axel Arigato een logische keuze.
 
 **Q3: Past een retro-tech sneaker onder een nette broek?**
 
@@ -68,7 +68,7 @@ Om je keuze makkelijker te maken, zie je hieronder hoe de drie merken zich tot e
 
 **Q4: Welke kleuren werken het best voor dagelijks gebruik?**
 
-**A: **Neutrale tinten zoals wit, off-white, grijs en navy zijn tijdloos en makkelijk te stylen. Je kunt altijd een subtiel accent toevoegen via sokken of accessoires.
+\*\*A: \*\*Neutrale tinten zoals wit, off-white, grijs en navy zijn tijdloos en makkelijk te stylen. Je kunt altijd een subtiel accent toevoegen via sokken of accessoires.
 
 Retro-tech sneakers geven je outfits een slimme upgrade. Of je nu valt voor de relaxed vibe van New Balance, de sportieve energie van Asics of de cleane elegantie van Axel Arigato, de trend is gemaakt om vaak te dragen en makkelijk te stylen.
 

@@ -2,7 +2,7 @@
 category: Blogs
 title: 'UGG trends en modellen: alles wat je wilt weten voor het nieuwe seizoen'
 slug: ugg-trends-en-modellen-alles-wat-je-wilt-weten-voor-het-nieuwe-seizoen
-heroImg: /uploads/Blog_ugg_hero.png
+heroImg: /uploads/ugg hero.png
 excerpt: >
   Bij Winkelstraat.nl zien we het elk jaar weer: zodra het wat kouder wordt,
   duiken de UGG boots overal op. En dat snappen we helemaal. Het gaat bij UGG
@@ -66,6 +66,6 @@ A: Hoewel EVA-zolen zorgen voor grip, blijft suède gevoelig voor vocht. Bij Win
 
 A: Kies voor klassiek Chestnut als je makkelijk wilt combineren; sand of pastelkleuren zijn juist leuk als je wilt opvallen. In onze ervaring zijn lichte tinten populair bij moderne, minimalistische looks.
 
-## ****
+## \*\*\*\*
 
 Met UGG kies je niet alleen voor comfort, maar ook voor tijdloze stijl en eindeloze combinatiemogelijkheden. Of je nu valt voor de Ultra Mini of toch bij de Classic Short blijft, je draagt altijd een stukje Californië bij je – maar dan wél afgestemd op Nederlandse winters. Benieuwd welke kleur of uitvoering het beste bij jou past? Bij Winkelstraat.nl helpen we je graag verder!

@@ -21,6 +21,16 @@ author: content/authors/wsnl.md
 date: 2025-11-10T23:00:00.000Z
 ---
 
+## Wat je moet weten
+
+* We vergelijken parka’s van Canada Goose, Parajumpers en Moose Knuckles.
+* Denk vooraf na over gewenste lengte, silhouet en hoe je je parka wil stylen.
+* Gebruik deze gids als kader om merken te vergelijken en jouw shortlist te bouwen.
+* Canada Goose is ideaal voor serieuze kou en een rustige, tijdloze look.
+* Parajumpers is de keuze voor wie van functionele details en een rechte fit houdt.
+
+Moose Knuckles geeft presence en een fashion-forward uitstraling, perfect voor city-looks.
+
 **Trends en wat je moet weten over parka's**
 
 De parka blijft jaar na jaar een favoriet omdat hij functioneel is en moeiteloos stylish kan zijn. Het silhouet is clean, de lengte geeft rust in je outfit en de capuchon vibe maakt hem city-ready. In de praktijk draait het om drie dingen: hoe de jas valt, welke lengte je fijn vindt en hoe je hem combineert in je dagelijkse leven. Zonder specifieke modeldata in de input houden we het bij een keuze-framework dat je meteen kunt toepassen.
@@ -57,10 +67,10 @@ Zoek je presence en een fashion-forward uitstraling, dan is [Moose Knuckles](htt
 
 **Q3: Hoe bepaal ik de juiste pasvorm zonder modeldata?**
 
-**A: **Pas de parka met je typische lagen eronder (zoals een knit of hoodie). Beweeg, ga zitten en check of de schouders en borst prettig aanvoelen. Zo voel je of het silhouet klopt en of er ruimte is voor laagjes.
+\*\*A: \*\*Pas de parka met je typische lagen eronder (zoals een knit of hoodie). Beweeg, ga zitten en check of de schouders en borst prettig aanvoelen. Zo voel je of het silhouet klopt en of er ruimte is voor laagjes.
 
 **Q4: Wat is het belangrijkste stylingadvies voor een parka?**
 
-**A: **Werk in lagen en let op proporties. Kies een lengte die je silhouet balanceert, vooral in combinatie met bredere broeken of chunky boots. Neutrale tinten laten je outfits rusten en maken stylen heel makkelijk.
+\*\*A: \*\*Werk in lagen en let op proporties. Kies een lengte die je silhouet balanceert, vooral in combinatie met bredere broeken of chunky boots. Neutrale tinten laten je outfits rusten en maken stylen heel makkelijk.
 
 Of je nu valt voor de rustige city-look, functionele details of uitgesproken presence, met dit keuze-framework kun je gericht vergelijken tussen Canada Goose, Parajumpers en Moose Knuckles. Probeer verschillende fits en lengtes, voel wat prettig is met jouw lagen en kies wat je het vaakst zult dragen. Bij Winkelstraat zien we elke dag hoe de juiste parka een wintergarderobe moeiteloos bij elkaar brengt. Wil je sparren over fit of styling, we denken graag met je mee.

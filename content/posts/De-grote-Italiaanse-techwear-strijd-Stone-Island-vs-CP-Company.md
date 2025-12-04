@@ -53,6 +53,8 @@ Denk aan hoe je beweegt door de week. Reis je veel, dan wil je laagjes die snel 
 
 **Vergelijking Stone Island vs. C.P. Company**
 
+![](/uploads/Blog_eigenschappen.png)
+
 **Styling & combinaties**
 
 1. Start met laagjes die ademen: stel je voor dat je een licht jack over een clean T-shirt draagt. Voeg een knit toe als de avond afkoelt. Zo blijf je flexibel zonder je outfit te wisselen.

@@ -2,6 +2,7 @@
 category: Blogs
 title: 'Dutch new luxury rising: Bram''s Fruit vs. Flâneur'
 slug: dutch-new-luxury-rising-brams-fruit-vs-flaneur
+heroImg: /uploads/Blog_dutchNL.png
 excerpt: >
   Dutch New Luxury is een gesprek dat je niet wil missen. Het onderwerp is vers,
   stijlbewust en draait om hoe moderne luxe eruitziet in Nederland. In deze blog

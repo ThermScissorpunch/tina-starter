@@ -2,6 +2,7 @@
 category: Blogs
 title: 'De titanenstrijd der parka''s: Canada Goose vs Parajumpers vs Moose Knuckles'
 slug: de-titanenstrijd-der-parkas-canada-goose-vs-parajumpers-vs-moose-knuckles
+heroImg: /uploads/blog_jackets.png
 excerpt: >
   Je voelt de eerste kou, je favoriete sweater is niet meer genoeg en je wil een
   parka waar je écht op kunt bouwen. Dan kom je al snel uit bij drie

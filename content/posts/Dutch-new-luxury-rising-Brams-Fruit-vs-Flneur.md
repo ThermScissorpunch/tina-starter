@@ -1,7 +1,7 @@
 ---
 category: Blogs
 title: 'Dutch new luxury rising: Bram''s Fruit vs. Flâneur'
-slug: dutch-new-
+slug: dutch-new-luxury-rising-brams-fruit-vs-flaneur
 excerpt: >
   Dutch New Luxury is een gesprek dat je niet wil missen. Het onderwerp is vers,
   stijlbewust en draait om hoe moderne luxe eruitziet in Nederland. In deze blog
@@ -70,7 +70,7 @@ Dutch New Luxury draait om gevoel en finesse. De sleutel is combineren met aanda
 
 **Q2: Wanneer kies ik voor Bram's Fruit en wanneer voor Flâneur?**
 
-**A: **Ga voor Bram's Fruit als je een label zoekt dat je prikkelt en dat je bestaande outfits moeiteloos versterkt. Kies Flâneur wanneer je voorkeur uitgaat naar rustige, elegante combinaties die bouwen op een kalm silhouet.
+\*\*A: \*\*Ga voor Bram's Fruit als je een label zoekt dat je prikkelt en dat je bestaande outfits moeiteloos versterkt. Kies Flâneur wanneer je voorkeur uitgaat naar rustige, elegante combinaties die bouwen op een kalm silhouet.
 
 **Q3: Hoe kan ik de items van deze labels het beste combineren?**
 

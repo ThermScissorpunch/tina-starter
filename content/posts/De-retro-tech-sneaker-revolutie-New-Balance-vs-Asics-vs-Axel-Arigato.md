@@ -21,6 +21,14 @@ author: content/authors/wsnl.md
 date: 2025-11-30T23:00:00.000Z
 ---
 
+## Wat je moet weten
+
+* Het draait om drie favorieten in retro-tech: New Balance, Asics en Axel Arigato.
+* Retro-tech combineert een retro-runner look met hedendaags draagcomfort.
+* Kiezen doe je op vibe: casual comfort, sportieve energie of strakke minimal.
+* Styling werkt het best met clean basics, losvallende denim en neutrale tinten.
+* Gebruik de vergelijking om snel te zien welke stijl het beste matcht met jouw outfits.
+
 **Trends en wat je moet weten over retro-tech sneakers**
 
 Retro-tech draait om contrast: een retro silhouet dat voelt als nu. Denk aan een gestroomlijnde hardloopvorm uit de nineties, gecombineerd met een comfortgerichte pasvorm en een tijdloos kleurpalet. Hierdoor krijg je sneakers die je elke dag kunt dragen, zonder dat ze schreeuwerig worden. De kracht zit in de eenvoud en in het feit dat je ze gemakkelijk mixt met je dagelijkse garderobe.

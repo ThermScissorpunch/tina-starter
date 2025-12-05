@@ -2,6 +2,7 @@
 category: Blogs
 title: 'De grote Italiaanse techwear strijd: Stone Island vs. C.P. Company'
 slug: de-grote-italiaanse-techwear-strijd-stone-island-vs-cp-company
+heroImg: /uploads/blog_cp.png
 excerpt: >
   Italiaanse techwear is niet meer weg te denken uit de straatmode. Het
   combineert een functionele mindset met een scherpe esthetiek die je zowel in
@@ -69,7 +70,7 @@ Denk aan hoe je beweegt door de week. Reis je veel, dan wil je laagjes die snel 
 
 **Q1: Wat is techwear in deze context?**
 
-**A: **Techwear draait hier om kleding met een functionele insteek en een moderne look. Je krijgt items die comfortabel zitten, slim zijn opgebouwd en makkelijk te combineren zijn in je dagelijkse leven.
+\*\*A: \*\*Techwear draait hier om kleding met een functionele insteek en een moderne look. Je krijgt items die comfortabel zitten, slim zijn opgebouwd en makkelijk te combineren zijn in je dagelijkse leven.
 
 **Q2: Wanneer kies ik voor Stone Island of C.P. Company?**
 
@@ -77,11 +78,11 @@ Denk aan hoe je beweegt door de week. Reis je veel, dan wil je laagjes die snel 
 
 **Q3: Past techwear ook bij een nettere setting?**
 
-**A: **Ja, als je cleane lijnen en rustige kleuren kiest. Combineer een strak overshirt met een nette broek en minimalistische schoenen. Zo blijft je outfit modern en toch verzorgd.
+\*\*A: \*\*Ja, als je cleane lijnen en rustige kleuren kiest. Combineer een strak overshirt met een nette broek en minimalistische schoenen. Zo blijft je outfit modern en toch verzorgd.
 
 **Q4: Hoe maak ik het geschikt voor alle seizoenen?**
 
-**A: **Werk met laagjes. Start met een ademende basis, voeg een middenlaag toe en sluit af met een lichte jas. Je past je outfit eenvoudig aan het weer aan.
+\*\*A: \*\*Werk met laagjes. Start met een ademende basis, voeg een middenlaag toe en sluit af met een lichte jas. Je past je outfit eenvoudig aan het weer aan.
 
 Of je nu valt voor het uitgesproken profiel van Stone Island of het rustige, functionele gevoel van C.P. Company, Italiaanse techwear geeft je een moderne basis die je elke dag kunt dragen. Laat je keuze leiden door hoe jij leeft en hoe je je outfits combineert.
 

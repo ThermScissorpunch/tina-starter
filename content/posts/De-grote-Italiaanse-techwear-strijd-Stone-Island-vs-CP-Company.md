@@ -2,7 +2,7 @@
 category: Blogs
 title: 'De grote Italiaanse techwear strijd: Stone Island vs. C.P. Company'
 slug: de-grote-italiaanse-techwear-strijd-stone-island-vs-cp-company
-heroImg: /uploads/blog_cp.png
+heroImg: /uploads/BLOG_CPHERO.png
 excerpt: >
   Italiaanse techwear is niet meer weg te denken uit de straatmode. Het
   combineert een functionele mindset met een scherpe esthetiek die je zowel in
@@ -36,9 +36,13 @@ Italiaanse techwear draait om functionaliteit die je echt gebruikt en een look d
 
 Wat je vooral merkt in Italiaanse techwear is de balans. Je outfit blijft comfortabel en modern, zonder te technisch te worden. Dat maakt het ideaal als je houdt van rustige combinaties met een verfijnde twist. Je kiest dan eerder voor een jack of overshirt dat je het hele jaar door kunt inzetten, met subtiele accenten die iets extra’s geven aan een eenvoudige jeans of chino.
 
+![](/uploads/BLOG_STONEY.png)
+
 **Stone Island in context**
 
 Binnen het thema Italiaanse techwear staat [Stone Island](https://www.winkelstraat.nl/designers/stone-island) symbool voor een uitgesproken stijlgevoel dat je direct ziet. Je outfit oogt modern en gelaagd, met focus op vorm en details. Kies Stone Island als je de voorkeur geeft aan een statement dat toch goed in je dagelijks leven past. Denk aan items die moeiteloos switchen van werk naar weekend, zonder dat je hoeft te wisselen van stijl.
+
+![](/uploads/blog_cp1.png)
 
 **C.P. Company in context**
 

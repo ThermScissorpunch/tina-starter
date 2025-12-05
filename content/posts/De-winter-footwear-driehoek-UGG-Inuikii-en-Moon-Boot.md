@@ -2,7 +2,7 @@
 category: Blogs
 title: 'De winter footwear driehoek: UGG, Inuikii en Moon Boot'
 slug: de-winter-footwear-driehoek-ugg-inuikii-en-moon-boot
-heroImg: /uploads/Blog_moonboot.png
+heroImg: /uploads/ugg_1144032ryk_244db6f5ca276fc1889ce2e45866d9f1fc1d7e96.avif
 excerpt: >
   Zodra de temperaturen dalen, wordt je schoenkeuze belangrijker dan ooit.
   Winterboots bepalen je look en hoe comfortabel je je voelt tijdens koude,

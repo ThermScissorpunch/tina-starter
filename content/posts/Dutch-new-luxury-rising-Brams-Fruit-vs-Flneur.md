@@ -71,7 +71,7 @@ Dutch New Luxury draait om gevoel en finesse. De sleutel is combineren met aanda
 
 **Q2: Wanneer kies ik voor Bram's Fruit en wanneer voor Flâneur?**
 
-\*\*A: \*\*Ga voor Bram's Fruit als je een label zoekt dat je prikkelt en dat je bestaande outfits moeiteloos versterkt. Kies Flâneur wanneer je voorkeur uitgaat naar rustige, elegante combinaties die bouwen op een kalm silhouet.
+**A:** Ga voor Flâneur als je een label zoekt dat je prikkelt en dat je bestaande outfits moeiteloos versterkt. Kies Bram's Fruit wanneer je voorkeur uitgaat naar rustige, elegante combinaties die bouwen op een kalm silhouet.
 
 **Q3: Hoe kan ik de items van deze labels het beste combineren?**
 

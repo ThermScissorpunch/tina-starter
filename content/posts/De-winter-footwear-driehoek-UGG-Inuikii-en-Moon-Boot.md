@@ -2,6 +2,7 @@
 category: Blogs
 title: 'De winter footwear driehoek: UGG, Inuikii en Moon Boot'
 slug: de-winter-footwear-driehoek-ugg-inuikii-en-moon-boot
+heroImg: /uploads/Blog_moonboot.png
 excerpt: >
   Zodra de temperaturen dalen, wordt je schoenkeuze belangrijker dan ooit.
   Winterboots bepalen je look en hoe comfortabel je je voelt tijdens koude,
@@ -78,7 +79,7 @@ Kijk naar [Moon Boot](https://www.winkelstraat.nl/designers/moon-boot) wanneer j
 
 **Q4: Welke schachthoogte moet ik kiezen?**
 
-**A: **Kijk naar je broeklengtes. Draag je vaak cropped of enkellang, dan is een schacht die net onder of net boven je enkel eindigt vaak het meest veelzijdig. Probeer zithoogte thuis met je favoriete broeken.
+\*\*A: \*\*Kijk naar je broeklengtes. Draag je vaak cropped of enkellang, dan is een schacht die net onder of net boven je enkel eindigt vaak het meest veelzijdig. Probeer zithoogte thuis met je favoriete broeken.
 
 **Q5: Hoe weet ik of er genoeg ruimte is voor dikke sokken?**
 

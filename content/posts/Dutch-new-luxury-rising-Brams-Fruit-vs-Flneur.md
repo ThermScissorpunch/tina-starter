@@ -25,8 +25,8 @@ date: 2025-12-03T23:00:00.000Z
 
 * Het artikel vergelijkt twee labels uit de Dutch New Luxury-beweging: Bram's Fruit en Flâneur.
 * Door het ontbreken van specifieke materiaal- of prijsinformatie, focus je op stijlgevoel en toepasbaarheid in je dagelijks leven.
-* Kies Bram's Fruit als je een label zoekt dat je prikkelt en moeiteloos in je week glijdt.
-* Kies Flâneur als je een merk zoekt dat je gevoel van elegantie en rustige combinaties versterkt.
+* Kies Flâneur als je een label zoekt dat je prikkelt en moeiteloos in je week glijdt.
+* Kies Bram's Fruit als je een merk zoekt dat je gevoel van elegantie en rustige combinaties versterkt.
 * Een goede keuze is het label dat in meerdere settings werkt, van koffiedate tot nette borrel.
 
 Stylingtips: werk met textuur en laagjes voor diepte, houd het kleurpalet rustig en let op proporties voor een gebalanceerde look.

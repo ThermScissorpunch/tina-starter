@@ -25,7 +25,7 @@ author: content/authors/wsnl.md
 date: 2025-12-07T23:00:00.000Z
 ---
 
-![](/uploads/GG.png)
+![](/uploads/gg2.png)
 
 1\. Saint Blanc - International hoodie ''blueberry''
 

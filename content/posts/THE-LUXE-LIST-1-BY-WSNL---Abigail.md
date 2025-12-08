@@ -25,7 +25,9 @@ author: content/authors/wsnl.md
 date: 2025-12-07T23:00:00.000Z
 ---
 
-1\. Saint Blanc - International hoodie ''blueberry'' 
+![](/uploads/GG.png)
+
+1\. Saint Blanc - International hoodie ''blueberry''
 
 Dit is een winter essential. De kleur is mooi en de hoodie ziet er comfortabel uit. Deze zal ik veel dragen met de koude dagen en is perfect om leuk te stylen. Simpel, cozy en toch opvallend genoeg om elke outfit net wat beter te maken.
 
@@ -41,10 +43,10 @@ De Tabi’s staan op mijn wishlist omdat ik ze supercool vind. Ze zijn net even 
 
 Deze tas vind ik prachtig. De vintage look en het klassieke design maken hem tijdloos. Daarnaast is de tas stijlvol maar toch subtiel waardoor hij bij bijna elke outfit past. Een echte classic. Deze Abbey bag is de perfecte balans tussen luxe en understated elegance. Een cadeau dat generaties meegaat.
 
-5\. Fear of God Essentials - Heavy Fleece Crewneck “Amber” 
+5\. Fear of God Essentials - Heavy Fleece Crewneck “Amber”
 
 Deze crewneck vind ik supertof. De kleur is rustig en tijdloos waardoor je hem veel kunt combineren. Daarnaast vind ik de fit mooi. Kortom, een item dat je vaak zal dragen en altijd goed staat. Een cozy basic, maar met die minimal luxe vibe waar Fear of God om bekendstaat. Warm, zacht, clean — en precies het soort hoodie dat in elke winter-wardrobe thuishoort.
 
-Dit was The Luxe List #1. De komende weken delen vijf andere teamleden hun persoonlijke picks: unexpected favourites, niche flexes, en misschien zelfs een paar pieces waarvan je niet eens wist dat je ze wilde hebben.
+Dit was The Luxe List #1. De komende weken delen onze teamleden hun persoonlijke picks: unexpected favourites, niche flexes, en misschien zelfs een paar pieces waarvan je niet eens wist dat je ze wilde hebben.
 
 Stay tuned.

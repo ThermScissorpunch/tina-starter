@@ -17,7 +17,7 @@ Dit jaar presenteren we The Luxe List: een serie cadeau-aanbevelingen samengeste
 
 Hier zijn haar must-haves voor deze winter:
 
- ![](/uploads/gg2.png)
+![](/uploads/gg3.png) 
 
 **1. Saint Blanc - International hoodie ''blueberry''**
 

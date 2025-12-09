@@ -9,23 +9,15 @@ excerpt: >
   laten zien dat je moeite hebt gedaan. Items die luxe uitstralen zonder te
   schreeuwen, en die iemand écht gaat gebruiken, dagelijks, jarenlang, met
   plezier.
-
-
-  Dit jaar presenteren we The Luxe List: een serie cadeau-aanbevelingen
-  samengesteld door ons team. Een lijst van items die volgens hen het perfecte
-  designer cadeau vormen. We trappen onze giftguide-serie af met de winter
-  favourites van Abigail. Iemand die precies weet hoe je comfort, edge en
-  tijdloze luxe combineert. Haar wishlist is een mix van essentials en statement
-  items die niet alleen mooi zijn om te geven, maar minstens zo leuk om te
-  krijgen.
-
-
-  Hier zijn haar must-haves voor deze winter:
 author: content/authors/wsnl.md
 date: 2025-12-07T23:00:00.000Z
 ---
 
-![](/uploads/gg2.png)
+Dit jaar presenteren we The Luxe List: een serie cadeau-aanbevelingen samengesteld door ons team. Een lijst van items die volgens hen het perfecte designer cadeau vormen. We trappen onze giftguide-serie af met de winter favourites van Abigail. Iemand die precies weet hoe je comfort, edge en tijdloze luxe combineert. Haar wishlist is een mix van essentials en statement items die niet alleen mooi zijn om te geven, maar minstens zo leuk om te krijgen.
+
+Hier zijn haar must-haves voor deze winter:
+
+ ![](/uploads/gg2.png)
 
 **1. Saint Blanc - International hoodie ''blueberry''**
 

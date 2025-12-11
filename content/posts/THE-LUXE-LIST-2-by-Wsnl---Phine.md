@@ -14,7 +14,7 @@ date: 2025-12-09T23:00:00.000Z
 
 Deze keer duiken we in de favorieten van Phine. Haar stijl is verfijnd, minimalistisch en altijd on point. Ze kiest voor items die even praktisch als prachtig zijn, en die nét dat beetje extra geven aan elke outfit. Dit zijn haar five-star gifting essentials van dit seizoen:
 
-****![](/uploads/Gg_phine.png)
+![](/uploads/Gg_phine.png)
 
 **1. Miu Miu - bordeaux wallet**
 

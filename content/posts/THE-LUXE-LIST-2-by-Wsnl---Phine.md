@@ -18,28 +18,26 @@ Deze keer duiken we in de favorieten van Phine. Haar stijl is verfijnd, minimali
 
 **1. Miu Miu - bordeaux wallet**
 
-Ik vind deze Miu Miu-portemonnee zo’n prachtig cadeau omdat hij klein is, maar toch elke dag gebruikt kan worden. Het is zo’n elegant, tijdloos item waarvan ik weet dat iemand er écht blij van wordt. Precies het soort luxe dat subtiel maar bijzonder voelt.
+Ik vind deze [Miu Miu-portemonnee](https://www.winkelstraat.nl/designers/miu-miu/miu-miu-5mm268-afpp-rood-b7f8d195-4898-4bb7-849d-b828727567e1.html) zo’n prachtig cadeau omdat hij klein is, maar toch elke dag gebruikt kan worden. Het is zo’n elegant, tijdloos item waarvan ik weet dat iemand er écht blij van wordt. Precies het soort luxe dat subtiel maar bijzonder voelt.
 Een compact statement piece dat dagelijks meegaat. Chic, praktisch en verrassend luxe.
 
 **2. Saint Laurent - Zonnebril**
 
-“Deze Saint Laurent zonnebril vind ik geweldig om te geven of krijgen omdat hij elke outfit meteen chic maakt. Het design is iconisch en de kwaliteit top. Het voelt als zo’n cadeau waarmee je iemand laat stralen.”
-Zonnebrillen zijn het nieuwe sieraad — en Saint Laurent doet het like no other.
+Deze [Saint Laurent zonnebril](https://www.winkelstraat.nl/designers/saint-laurent/saint-laurent-803745-y9956-zwart-b9f92681-5e36-4b0a-a2c9-9f12e3215c36.html) vind ik geweldig om te geven of krijgen omdat hij elke outfit meteen chic maakt. Het design is iconisch en de kwaliteit top. Het voelt als zo’n cadeau waarmee je iemand laat stralen.
+Zonnebrillen zijn het nieuwe sieraad en Saint Laurent doet het like no other.
 
 **3. Acne Studios - Oversized Leather Jacket ''Black''**
 
-Het leren jacket van Acne Studios is voor mij het ultieme statement piece. Ik hou ervan omdat het minimalistisch is, maar toch krachtig en stijlvol. Het is zo’n cadeau waarvan ik weet: dit ga ik jarenlang dragen. Een echte investering in iemands garderobe.
+Het[ leren jacket van Acne Studios](https://www.winkelstraat.nl/designers/saint-laurent/saint-laurent-sl-596-dune-bruin-956c02f2-c65d-4f85-b49a-3a3937527308.htmlhttps://www.winkelstraat.nl/designers/acne-studios/acne-studios-oversized-leather-jacket-black-zwart-da35968c-c905-4734-ad0a-01226dac6e05.html) is voor mij het ultieme statement piece. Ik hou ervan omdat het minimalistisch is, maar toch krachtig en stijlvol. Het is zo’n cadeau waarvan ik weet: dit ga ik jarenlang dragen. Een echte investering in iemands garderobe.
 Een future-classic. Clean, edgy en gemaakt om seizoen na seizoen te dragen.
 
 **4. Jacquemus - La casquette ''black''**
 
-Ik ben dol op deze Jacquemus-pet als cadeau omdat hij speels, stijlvol en superdraagbaar is. Hij past bijna iedereen en geeft elke casual outfit meteen die subtiele designer touch. Zo’n klein, chic item dat altijd goed uitpakt.
-De perfecte designer flex voor dagelijks gebruik.  low-key maar absoluut herkenbaar.
+Ik ben dol op deze [Jacquemus-pet](https://www.winkelstraat.nl/designers/jacquemus/hats-black-zwart-db484fc1-c21e-41e9-b77b-2078de58a7e0.html) als cadeau omdat hij speels, stijlvol en superdraagbaar is. Hij past bijna iedereen en geeft elke casual outfit meteen die subtiele designer touch. Zo’n klein, chic item dat altijd goed uitpakt. De perfecte designer flex voor dagelijks gebruik.  
 
 **5. Louis Vuitton - Nice Mini**
 
-Ik kies graag voor de Louis Vuitton toilettas omdat hij gewoon pure luxe uitstraalt. Het is zo’n praktisch én elegant cadeau dat iemand zowel thuis als op reis kan gebruiken. Tijdloos, mooi afgewerkt en echt iets dat jarenlang meegaat.
-Functionele luxe op zijn best: compact, iconisch en volledig onmisbaar.
+Ik kies graag voor de [Louis Vuitton toilettas ](https://www.winkelstraat.nl/designers/louis-vuitton/monogram-nice-mini-vanity-case-bruin-7a7b32a8-f711-46f0-8d7b-4a497f65d248.html)omdat hij gewoon pure luxe uitstraalt. Het is zo’n praktisch én elegant cadeau dat iemand zowel thuis als op reis kan gebruiken. Tijdloos, mooi afgewerkt en echt iets dat jarenlang meegaat. Functionele luxe op zijn best: compact, iconisch en volledig onmisbaar.
 
 Dit was The Luxe List #2.
 In de komende edities delen nog meer teamleden hun persoonlijke wishlist: unexpected gems, luxe basics, en designer must-haves waar je holiday shopping gegarandeerd beter van wordt.

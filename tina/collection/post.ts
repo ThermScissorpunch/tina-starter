@@ -26,7 +26,7 @@ const Post: Collection = {
     },
     {
       type: "string",
-      name: "categoryrCodes",
+      name: "categoryCodes",
       label: "Category Codes",
       list: true,
       description: "Add one or more category codes found in Magento 2. For example H/SCHOENEN/SNEAKERS",

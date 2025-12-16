@@ -19,6 +19,20 @@ const Post: Collection = {
     },
     {
       type: "string",
+      name: "manufacturerCodes",
+      label: "Manufacturer Codes",
+      list: true,
+      description: "Add one or more manufacturer codes found in Magento 2. For example MY_JEWELLERY",
+    },
+    {
+      type: "string",
+      name: "categoryrCodes",
+      label: "Category Codes",
+      list: true,
+      description: "Add one or more category codes found in Magento 2. For example H/SCHOENEN/SNEAKERS",
+    },
+    {
+      type: "string",
       label: "Title",
       name: "title",
       isTitle: true,

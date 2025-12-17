@@ -1,5 +1,7 @@
 ---
 category: Blogs
+manufacturerCodes:
+  - UGG
 title: WAAROM WE NOG STEEDS UGG'S DRAGEN
 slug: waarom-we-nog-steeds-uggs-dragen
 heroImg: /uploads/ugg2.png

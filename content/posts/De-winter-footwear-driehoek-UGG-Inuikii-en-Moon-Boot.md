@@ -1,5 +1,7 @@
 ---
 category: Blogs
+manufacturerCodes:
+  - UGG
 title: 'De winter footwear driehoek: UGG, Inuikii en Moon Boot'
 slug: de-winter-footwear-driehoek-ugg-inuikii-en-moon-boot
 heroImg: /uploads/Screenshot at Dec 05 14-38-41.png

@@ -21,6 +21,7 @@ In de derde aflevering van het tweede seizoen van **Brand News**, gepresenteerd 
 
 **Beluister de aflevering** - Wil je meer horen over Diede’s inspirerende reis als danser en model? Beluister de volledige aflevering van Brand News via [Spotify](https://open.spotify.com/episode/6qB0ZQpRxINon8DFeAyPHF), [Apple Podcasts](https://podcasts.apple.com/us/podcast/combining-careers-being-a-dancer-and-a-model/id1719125980?i=1000671757975) of [Amazon Music](https://music.amazon.co.uk/podcasts/41e8acae-a62a-4f3b-ad9b-c3a3f8b95e19/episodes/fef08cb6-ee56-4c99-aad5-f21431560d1b/brand-news-combining-careers-being-a-dancer-and-a-model).
 
+
 \[youtube: OhnH5ccWnWE]
 
 \[spotify: 6qB0ZQpRxINon8DFeAyPHF]

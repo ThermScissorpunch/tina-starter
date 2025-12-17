@@ -8,7 +8,6 @@ blocks:
 
       Lorum ipsum hallo 123
 
-      ![](/uploads/llama-2.avif)
     text2: >
       ## Developers
 

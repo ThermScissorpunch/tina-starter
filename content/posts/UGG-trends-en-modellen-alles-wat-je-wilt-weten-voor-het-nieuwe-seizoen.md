@@ -1,5 +1,7 @@
 ---
 category: Blogs
+manufacturerCodes:
+  - UGG
 title: 'UGG trends en modellen: alles wat je wilt weten voor het nieuwe seizoen'
 slug: ugg-trends-en-modellen-alles-wat-je-wilt-weten-voor-het-nieuwe-seizoen
 heroImg: /uploads/ugg hero.png

@@ -1,5 +1,7 @@
 ---
 category: Blogs
+manufacturerCodes:
+  - LOUIS_VUITTON
 title: De Louis Vuitton Monogram is de Cheat Code Voor Gen Z Stijl
 slug: de-louis-vuitton-monogram-is-de-cheat-code-voor-gen-z-stijl
 heroImg: /uploads/BLOG_LV.png

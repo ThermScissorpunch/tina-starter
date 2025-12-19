@@ -9,7 +9,7 @@ excerpt: >
   De Louis Vuitton Monogram is het meest onwaarschijnlijke icoon van onze tijd.
   Laten we eerlijk zijn: de vibe is veranderd. In het tijdperk van quiet luxury
   en vluchtige TikTok-microtrends, zou een 128 jaar oude, overduidelijke
-  logoprint cringe moeten zijn.
+  logoprint cringe moeten zijn..
 author: content/authors/Luna.md
 date: 2025-11-16T23:00:00.000Z
 ---

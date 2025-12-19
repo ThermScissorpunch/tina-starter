@@ -51,6 +51,12 @@ const Post: Collection = {
       label: "Hero Image",
     },
     {
+      type: "image",
+      name: "productListImg",
+      label: "Product List Image",
+      description: 'Used when feature is visible on product list',
+    },
+    {
       type: "rich-text",
       label: "Excerpt",
       name: "excerpt",

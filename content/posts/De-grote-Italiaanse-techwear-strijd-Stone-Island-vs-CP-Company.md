@@ -1,5 +1,8 @@
 ---
 category: Blogs
+manufacturerCodes:
+  - STONE_ISLAND
+  - CP_COMPANY
 title: 'De grote Italiaanse techwear strijd: Stone Island vs. C.P. Company'
 slug: de-grote-italiaanse-techwear-strijd-stone-island-vs-cp-company
 heroImg: /uploads/BLOG_CPHERO.png

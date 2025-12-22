@@ -6,12 +6,14 @@ heroImg: /uploads/Blog_justin.png
 excerpt: >
   Voor deze editie van The Luxe List draait alles om winterstaples die verder
   gaan dan basic. Pieces die je garderobe dragen, zonder dat je outfit te hard
-  hoeft te werken. 
+  hoeft te werken.
 author: content/authors/wsnl.md
 date: 2025-12-21T01:00:00.000Z
 ---
 
 Dit is een wishlist voor nu, maar ook voor later. Items die dit seizoen kloppen en over tien jaar nog steeds relevant zijn.
+
+![](/uploads/blog_justin_giftguid.png)
 
 **1. Maison Margiela - Tabi Loafer**
 

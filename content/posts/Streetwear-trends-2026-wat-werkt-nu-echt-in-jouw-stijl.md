@@ -78,7 +78,7 @@ Laat één detail spreken: een opvallende ritssluiting, een zak, of een unieke k
 
 **Q3: Kan streetwear geschikt zijn voor werk?**
 
-\*\*A: \*\*Zeker. Kies de Clean street aanpak: cleane lijnen, ton-sur-ton kleur en nette afwerking. Je behoudt de street-attitude maar oogt professioneel.
+**A:** Zeker. Kies de Clean street aanpak: cleane lijnen, ton-sur-ton kleur en nette afwerking. Je behoudt de street-attitude maar oogt professioneel.
 
 **Q4: Hoe zorg ik dat mijn outfit de hele dag goed blijft?**
 

@@ -1,4 +1,5 @@
 ---
+category: Blogs
 title: 'Streetwear trends 2026: wat werkt nu echt in jouw stijl'
 slug: streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl
 heroImg: /uploads/BLOG_Streetwear.png

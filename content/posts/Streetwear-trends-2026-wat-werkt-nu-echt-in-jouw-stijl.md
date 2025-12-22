@@ -84,6 +84,4 @@ Laat één detail spreken: een opvallende ritssluiting, een zak, of een unieke k
 
 **A:** Denk vooruit: plan op comfort en functionaliteit. Bouw met layering (laagjes), kies ademende basisstukken en een buitenlaag die je makkelijk aan en uit doet.
 
-**Conclusie**
-
 Streetwear trends 2026 gaan over slimme keuzes die je leven makkelijker maken. Focus op vorm (silhouet), kleur en laagjes, dan voelt je outfit modern en klopt hij in elke setting. Wil je sparren over combinaties die bij jou passen, neem dan dit kader als startpunt en bouw vanuit je eigen kast. Bij Winkelstraat delen we graag wat werkt, zodat jij met vertrouwen je stijl laat zien.

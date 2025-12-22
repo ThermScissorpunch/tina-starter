@@ -5,6 +5,7 @@ manufacturerCodes:
 title: 'De winter footwear driehoek: UGG, Inuikii en Moon Boot'
 slug: de-winter-footwear-driehoek-ugg-inuikii-en-moon-boot
 heroImg: /uploads/Screenshot at Dec 05 14-38-41.png
+productListImg: /uploads/DT_women-view-all-EC-8942.jpg
 excerpt: >
   Zodra de temperaturen dalen, wordt je schoenkeuze belangrijker dan ooit.
   Winterboots bepalen je look en hoe comfortabel je je voelt tijdens koude,

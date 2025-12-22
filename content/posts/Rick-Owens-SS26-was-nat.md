@@ -1,5 +1,7 @@
 ---
 category: Blogs
+manufacturerCodes:
+  - RICK_OWENS
 title: Rick Owens SS26 was nat
 slug: rick owens ss26 was nat
 heroImg: /uploads/ro_blog_hero.png
@@ -56,4 +58,4 @@ De finale was alles. Modellen klommen de stellages op als een soort, drijfnat en
 somber. Een soort performance art over instorten en herrijzen, iets waar deze generatie
 zich wel in herkent. Net als de modellen onderwater wat aanvoelde als een soort doop.
 De show eindigde met de grote fonteinen en maakte zo een spectaculair einde aan de
-show. 
+show.

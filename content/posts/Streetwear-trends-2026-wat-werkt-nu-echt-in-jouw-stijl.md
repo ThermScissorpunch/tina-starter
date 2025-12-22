@@ -52,6 +52,8 @@ Layering (werken met laagjes) is je beste vriend. Start met een comfortabele bas
 
 Er zijn meerdere manieren om streetwear in 2026 neer te zetten. Hieronder vind je drie duidelijke richtingen. Zie ze als bouwpakketten die je kunt mixen. Kies wat past bij je agenda en mood. Tip: benoem één focus, bijvoorbeeld comfort, contrast of clean, en stem de rest van je keuzes daarop af.
 
+![](/uploads/Blog_streetwear_vergelijking.png)
+
 **Styling & combinaties met streetwear trends 2026**
 
 Kies je focus: denk aan de vorm (silhouet). Stel je voor dat je een foto van jezelf van een afstand ziet. Wil je dat de bovenkant of juist de onderkant de aandacht pakt? Maak daarop je keuzes.
@@ -76,7 +78,7 @@ Laat één detail spreken: een opvallende ritssluiting, een zak, of een unieke k
 
 **Q3: Kan streetwear geschikt zijn voor werk?**
 
-**A: **Zeker. Kies de Clean street aanpak: cleane lijnen, ton-sur-ton kleur en nette afwerking. Je behoudt de street-attitude maar oogt professioneel.
+\*\*A: \*\*Zeker. Kies de Clean street aanpak: cleane lijnen, ton-sur-ton kleur en nette afwerking. Je behoudt de street-attitude maar oogt professioneel.
 
 **Q4: Hoe zorg ik dat mijn outfit de hele dag goed blijft?**
 

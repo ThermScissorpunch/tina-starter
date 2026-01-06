@@ -7,6 +7,28 @@ slug: de-winter-footwear-driehoek-ugg-inuikii-en-moon-boot
 heroImg: /uploads/Screenshot at Dec 05 14-38-41.png
 productListImg: /uploads/DT_women-view-all-EC-8942.jpg
 excerpt: >
+  **TL;DR: Wat je moet weten**
+
+
+  * Het draait om de "Winter Footwear Driehoek": UGG, Inuikii en Moon Boot.
+
+  * De keuze maak je op basis van de gewenste vibe en je gebruiksmoment
+  (stadswandeling, weekend, natte dagen).
+
+  * Belangrijkste focuspunten zijn: pasvorm en volume (met ruimte voor dikke
+  sokken), warmtegevoel en grip/weerbestendigheid.
+
+  * UGG staat voor een toegankelijke, cosy winterlook, ideaal voor de stad en
+  allround comfort.
+
+  * Inuikii biedt een modieuze winterboot met meer presence en rijke texturen.
+
+  * Moon Boot is de keuze voor een uitgesproken winterstatement, met focus op
+  grip en stabiliteit.
+
+  *
+
+
   Zodra de temperaturen dalen, wordt je schoenkeuze belangrijker dan ooit.
   Winterboots bepalen je look en hoe comfortabel je je voelt tijdens koude,
   natte dagen. De Winter Footwear Driehoek is simpel: je keuze gaat vaak tussen

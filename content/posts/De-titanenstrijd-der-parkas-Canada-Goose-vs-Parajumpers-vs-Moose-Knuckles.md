@@ -4,6 +4,25 @@ title: 'De titanenstrijd der parka''s: Canada Goose vs Parajumpers vs Moose Knuc
 slug: de-titanenstrijd-der-parkas-canada-goose-vs-parajumpers-vs-moose-knuckles
 heroImg: /uploads/blog_jackets.png
 excerpt: >
+  **TL;DR: Wat je moet weten**
+
+
+  * We vergelijken parka’s van Canada Goose, Parajumpers en Moose Knuckles.
+
+  * Denk vooraf na over gewenste lengte, silhouet en hoe je je parka wil stylen.
+
+  * Gebruik deze gids als kader om merken te vergelijken en jouw shortlist te
+  bouwen.
+
+  * Canada Goose is ideaal voor serieuze kou en een rustige, tijdloze look.
+
+  * Parajumpers is de keuze voor wie van functionele details en een rechte fit
+  houdt.
+
+  * Moose Knuckles geeft presence en een fashion-forward uitstraling, perfect
+  voor city-looks.
+
+
   Je voelt de eerste kou, je favoriete sweater is niet meer genoeg en je wil een
   parka waar je écht op kunt bouwen. Dan kom je al snel uit bij drie
   zwaargewichten: Canada Goose, Parajumpers en Moose Knuckles. Dit zijn namen

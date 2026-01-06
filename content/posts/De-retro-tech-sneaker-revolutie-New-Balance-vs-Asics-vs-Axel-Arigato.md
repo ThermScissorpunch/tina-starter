@@ -4,6 +4,23 @@ title: 'De retro-tech sneaker revolutie: New Balance vs. Asics vs. Axel Arigato'
 slug: de-retro-tech-sneaker-revolutie-new-balance-vs-asics-vs-axel-arigato
 heroImg: /uploads/asics.png
 excerpt: >
+  **TL;DR: Wat je moet weten**
+
+
+  * Het draait om drie favorieten in retro-tech: New Balance, Asics en Axel
+  Arigato.
+
+  * Retro-tech combineert een retro-runner look met hedendaags draagcomfort.
+
+  * Kiezen doe je op vibe: casual comfort, sportieve energie of strakke minimal.
+
+  * Styling werkt het best met clean basics, losvallende denim en neutrale
+  tinten.
+
+  * Gebruik de vergelijking om snel te zien welke stijl het beste matcht met
+  jouw outfits.
+
+
   Retro-tech sneakers zijn overal. Ze voelen vertrouwd door hun vintage
   runner-vibe en zien er fris uit dankzij moderne details. Precies die mix maakt
   ze zo draagbaar, van kantoor tot koffiedate. En ja, je kunt ze moeiteloos

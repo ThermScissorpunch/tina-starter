@@ -4,6 +4,26 @@ title: 'De ultieme designer tas: Chanel, Louis Vuitton, Gucci en Jacquemus verge
 slug: de-ultieme-designer-tas-chanel-louis-vuitton-gucci-en-jacquemus-vergeleken
 heroImg: /uploads/Blog_LV_hero.png
 excerpt: >
+  **TL;DR: Wat je moet weten**
+
+
+  * We vergelijken de invloed en stijl van Chanel, Louis Vuitton, Gucci en
+  Jacquemus op de high-end tassenmarkt.
+
+  * De keuze is afhankelijk van formaat, draagstijl en de kleur die het beste
+  bij je garderobe past.
+
+  * Chanel en Louis Vuitton staan voor tijdloze status en investering.
+
+  * Gucci en Jacquemus vertegenwoordigen moderne luxe met een uitgesproken
+  (fashion-forward) stijl.
+
+  * De beste tas is een bewuste keuze die naadloos aansluit bij je dagelijkse
+  ritme.
+
+  *
+
+
   Waarom is de keuze voor een designer tas zo bepalend voor je look? Een goede
   tas tilt je outfit in één beweging omhoog en vertelt iets over jouw stijl.
   Denk aan het verschil tussen een compact model voor avonden uit en een ruimere
@@ -38,7 +58,7 @@ Bekend om zijn minimalistische, architecturale en vaak compacte ontwerpen. Staat
 
 **Vergelijking designer tassen: Chanel vs. Louis Vuitton vs. Gucci vs. Jacquemus**
 
-****![](/uploads/Blog_tassen_vergelijking.png)
+\*\*\*\*![](/uploads/Blog_tassen_vergelijking.png)
 
 **Veelgestelde vragen**
 
@@ -48,11 +68,11 @@ Bekend om zijn minimalistische, architecturale en vaak compacte ontwerpen. Staat
 
 **Q2: Welke draagstijl is het meest veelzijdig?**
 
-**A: **Een crossbody draagwijze geeft vrijheid en werkt goed wanneer je veel onderweg bent. Voor een geklede uitstraling is een hand- of schoudermodel ideaal. Bedenk vooral hoe je tas het vaakst zal hangen tijdens je dag.
+\*\*A: \*\*Een crossbody draagwijze geeft vrijheid en werkt goed wanneer je veel onderweg bent. Voor een geklede uitstraling is een hand- of schoudermodel ideaal. Bedenk vooral hoe je tas het vaakst zal hangen tijdens je dag.
 
 **Q3: Welke kleur werkt het beste bij mijn garderobe?**
 
-**A: **Sluit aan op wat je het meest draagt. Neutrale tinten mengen moeiteloos en geven rust. Wil je je outfit een twist geven, kies dan een kleur die contrasteert met je jassen en knitwear.
+\*\*A: \*\*Sluit aan op wat je het meest draagt. Neutrale tinten mengen moeiteloos en geven rust. Wil je je outfit een twist geven, kies dan een kleur die contrasteert met je jassen en knitwear.
 
 **Q4: Hoe haal ik het meeste uit mijn investering?**
 

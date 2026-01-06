@@ -7,6 +7,26 @@ title: 'De grote Italiaanse techwear strijd: Stone Island vs. C.P. Company'
 slug: de-grote-italiaanse-techwear-strijd-stone-island-vs-cp-company
 heroImg: /uploads/BLOG_CPHERO.png
 excerpt: >
+  **TL;DR: Wat je moet weten**
+
+
+  * De vergelijking richt zich op Italiaanse techwear: Stone Island en C.P.
+  Company.
+
+  * Stone Island biedt een duidelijk, modern en urban profiel, ideaal voor een
+  opvallend stijlstatement van werk tot weekend.
+
+  * C.P. Company staat voor functioneel design met een rustiger, gestroomlijnd
+  profiel dat makkelijk integreert in een capsule wardrobe.
+
+  * De keuze hangt af van je gewenste uitstraling: opvallend (Stone Island) of
+  subtiel en makkelijk te combineren (C.P. Company).
+
+  * Styling draait om laagjes, rustige, neutrale tinten (zwart, navy, olijf) en
+  het behouden van een clean silhouet om de techwear dagelijks draagbaar te
+  maken.
+
+
   Italiaanse techwear is niet meer weg te denken uit de straatmode. Het
   combineert een functionele mindset met een scherpe esthetiek die je zowel in
   de stad als onderweg goed staat. Merken als Stone Island en C.P. Company zijn

@@ -4,6 +4,9 @@ title: 'Layering Season: warm blijven, but make it fashion'
 slug: layering-season-warm-blijven-but-make-it-fashion
 heroImg: /uploads/layerin_hero.png
 excerpt: >
+  Foto: Winkelstraat.nl/ Paris Fashion Week
+
+
   Het nieuwe jaar is koud begonnen. Letterlijk. Sneeuw, natte straten,
   temperaturen waar je outfit geen excuses meer accepteert. Dit is het moment
   waarop layeren geen stylingkeuze is, maar een skill. En voor iedereen die mode

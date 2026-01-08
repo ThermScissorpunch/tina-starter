@@ -81,17 +81,15 @@ Stel je voor dat je je garderobe als een stedelijke toolkit ziet. Welk label vul
 
 Praktisch kiezen werkt zo: maak in je hoofd twee outfits met elk van de twee namen als ankerpunt. Denk aan je favoriete broek, schoenen en outerwear die je al bezit. Past het geheel bij je dagelijkse agenda en de plekken waar je komt? De beste optie is de naam die zonder twijfel in meerdere settings werkt, van een koffiedate tot een nette borrel.
 
-##
-
 ## **Styling & combinaties met dutch new luxury**
 
 Dutch New Luxury draait om gevoel en finesse. De sleutel is combineren met aandacht, zodat je outfits er moeiteloos doordacht uitzien.
 
 ## **Vergelijking Bram's Fruit en Flâneur**
 
-## ****![](/uploads/bf_flaneur.png)
+![](/uploads/bf_flaneur.png)
 
-## Styling & combinaties
+## **Styling & combinaties**
 
 1. Start met je basis. Stel je voor dat je je favoriete jeans of pantalon pakt. Kies vervolgens de naam, Bram's Fruit of Flâneur, die jij als anker voor de look ziet. Werkt het met je vaste schoenen en jas? Zo ja, dan zit je goed.
 2. Denk aan textuur en laagjes. Het is slim om te spelen met contrasten die je al bezit, zoals een gladde top met een grovere knit of een strakke pantalon met een zachte trui. Dat geeft direct die Dutch New Luxury diepte.

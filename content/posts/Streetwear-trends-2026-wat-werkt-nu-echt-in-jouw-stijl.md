@@ -48,33 +48,33 @@ author: content/authors/wsnl.md
 date: 2025-12-01T00:00:00.000Z
 ---
 
-**Trends en wat je moet weten over streetwear trends 2026**
+## **Trends en wat je moet weten over streetwear trends 2026**
 
 Streetwear in 2026 voelt volwassen en draagbaar. Het is nog steeds speels, maar slimmer opgebouwd. De basis: kies een duidelijke vorm (silhouet), houd je kleurkeuzes eenvoudig en zorg dat functionele details terugkomen. Daarmee blijft je look eigen, ook als trends verschuiven.
 
-**Vorm (Silhouet) en proportie**
+### **Vorm (Silhouet) en proportie**
 
 Het woord silhouet klinkt misschien ingewikkeld, maar het is eigenlijk heel simpel: het is de algemene vorm of omtrek van je hele outfit (hoe de kleding valt op je lichaam). Het gaat erom hoe je de verhoudingen tussen je kledingstukken aanpakt. Begin daarom bij die verhoudingen (proportie). Een oversized top werkt goed met een strakkere onderkant, bijvoorbeeld een rechte broek of cleane sneaker. Wil je juist een slanke omtrek, breng dan meer volume terug in je jas of knit. De regel is simpel: laat één element de hoofdrol spelen en houd de rest rustig. Zo creëer je balans en ziet je look er doordacht uit.
 
-**Kleur en textuur**
+### **Kleur en textuur**
 
 Kies een kern van twee tot drie kleuren. Neutrals geven rust, een accentkleur zorgt voor energie. Textuur doet de rest. Matte stoffen ogen clean, een subtiele glans geeft diepte. Door texturen te mixen lijkt je outfit rijker zonder dat je extra prints nodig hebt.
 
-**Functionele details**
+### **Functionele details**
 
 Streetwear leeft in de stad. Praktische zakken, ritsen die soepel lopen en materialen die tegen een drup regen kunnen, maken je kleding niet alleen mooier, maar ook slimmer. Draagcomfort telt, zeker wanneer je veel beweegt. Kies voor details die echt iets doen en niet alleen decoratief zijn.
 
-**Bouwen met laagjes**
+### **Bouwen met laagjes**
 
 Layering (werken met laagjes) is je beste vriend. Start met een comfortabele basislaag, voeg een middenlaag toe voor structuur en sluit af met een jas of overshirt. Zo kun je snel schakelen tussen binnen en buiten, en oogt je outfit altijd af.
 
-**Vergelijking binnen streetwear trends van 2026**
+## **Vergelijking binnen streetwear trends van 2026**
 
 Er zijn meerdere manieren om streetwear in 2026 neer te zetten. Hieronder vind je drie duidelijke richtingen. Zie ze als bouwpakketten die je kunt mixen. Kies wat past bij je agenda en mood. Tip: benoem één focus, bijvoorbeeld comfort, contrast of clean, en stem de rest van je keuzes daarop af.
 
 ![](/uploads/Blog_streetwear_vergelijking.png)
 
-**Styling & combinaties met streetwear trends 2026**
+## **Styling & combinaties met streetwear trends 2026**
 
 Kies je focus: denk aan de vorm (silhouet). Stel je voor dat je een foto van jezelf van een afstand ziet. Wil je dat de bovenkant of juist de onderkant de aandacht pakt? Maak daarop je keuzes.
 
@@ -86,7 +86,7 @@ Speel met textuur: combineer matte en subtiele glanzende oppervlakken. Hierdoor 
 
 Laat één detail spreken: een opvallende ritssluiting, een zak, of een unieke kraag. Houd de rest rustig zodat het geheel modern en moeiteloos blijft.
 
-**Veelgestelde vragen**
+## **Veelgestelde vragen**
 
 **Q1: Hoe vertaal ik Streetwear trends 2026 zonder specifieke producten?**
 

@@ -56,19 +56,19 @@ Bekend om zijn minimalistische, architecturale en vaak compacte ontwerpen. Staat
 
 ## **Veelgestelde vragen**
 
-**Q1: Hoe kies ik het juiste formaat designer tas?**
+### **Q1: Hoe kies ik het juiste formaat designer tas?**
 
 **A:** Kijk naar je dagelijkse essentials. Past je telefoon, portemonnee en sleutels in een compact model, dan oogt dat meteen chic. Neem je extra items mee, ga dan voor medium. Voor volle werkdagen en reizen voelt ruim logischer.
 
-**Q2: Welke draagstijl is het meest veelzijdig?**
+### **Q2: Welke draagstijl is het meest veelzijdig?**
 
 **A:** Een crossbody draagwijze geeft vrijheid en werkt goed wanneer je veel onderweg bent. Voor een geklede uitstraling is een hand- of schoudermodel ideaal. Bedenk vooral hoe je tas het vaakst zal hangen tijdens je dag.
 
-**Q3: Welke kleur werkt het beste bij mijn garderobe?**
+### **Q3: Welke kleur werkt het beste bij mijn garderobe?**
 
-**A: **Sluit aan op wat je het meest draagt. Neutrale tinten mengen moeiteloos en geven rust. Wil je je outfit een twist geven, kies dan een kleur die contrasteert met je jassen en knitwear.
+\*\*A: \*\*Sluit aan op wat je het meest draagt. Neutrale tinten mengen moeiteloos en geven rust. Wil je je outfit een twist geven, kies dan een kleur die contrasteert met je jassen en knitwear.
 
-**Q4: Hoe haal ik het meeste uit mijn investering?**
+### **Q4: Hoe haal ik het meeste uit mijn investering?**
 
 **A:** Kies bewust op basis van scenario’s. Als je meteen drie outfits kunt bedenken waarbij de tas klopt, ga je hem vaak dragen. Zo voelt je keuze zowel stijlvol als functioneel.
 

@@ -77,19 +77,19 @@ Laat één detail spreken: een opvallende ritssluiting, een zak, of een unieke k
 
 ## **Veelgestelde vragen**
 
-**Q1: Hoe vertaal ik Streetwear trends 2026 zonder specifieke producten?**
+### **Q1: Hoe vertaal ik Streetwear trends 2026 zonder specifieke producten?**
 
 **A:** Werk met kaders: vorm (silhouet), kleurpalet, textuur en laagjes. Als deze vier kloppen, voelt je outfit eigentijds en blijft het dicht bij jouw stijl.
 
-**Q2: Welke kleuren kan ik veilig als basis nemen?**
+### **Q2: Welke kleuren kan ik veilig als basis nemen?**
 
 **A:** Neutrals (neutrale tinten) vormen een handige basis omdat ze onderling makkelijk combineren. Voeg per look één accent toe voor energie. Zo blijft je kledingkast flexibel.
 
-**Q3: Kan streetwear geschikt zijn voor werk?**
+### **Q3: Kan streetwear geschikt zijn voor werk?**
 
 **A:** Zeker. Kies de Clean street aanpak: cleane lijnen, ton-sur-ton kleur en nette afwerking. Je behoudt de street-attitude maar oogt professioneel.
 
-**Q4: Hoe zorg ik dat mijn outfit de hele dag goed blijft?**
+### **Q4: Hoe zorg ik dat mijn outfit de hele dag goed blijft?**
 
 **A:** Denk vooruit: plan op comfort en functionaliteit. Bouw met layering (laagjes), kies ademende basisstukken en een buitenlaag die je makkelijk aan en uit doet.
 

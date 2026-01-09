@@ -4,25 +4,6 @@ title: 'Streetwear trends 2026: wat werkt nu echt in jouw stijl'
 slug: streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl
 heroImg: /uploads/BLOG_Streetwear.png
 excerpt: >
-  **TL;DR: Wat je moet weten**
-
-
-  * Streetwear in 2026 draait om slimme en dagelijks draagbare keuzes die
-  overtuigend zijn zonder schreeuwerig te zijn.
-
-  * De look is gebouwd op drie pijlers: een duidelijke vorm (silhouet), een
-  gebalanceerd kleurenpalet en laagjes (layering).
-
-  * Focus op balans in proporties (bijv. één oversized kledingstuk met een
-  strakkere tegenhanger) om je look doordacht te laten zijn.
-
-  * Integratie van functionele details en het slim combineren van texturen (mat
-  met glans) zorgen voor diepte.
-
-  * Je kiest een stijl aanpak uit de drie richtingen: Statement-led,
-  Comfort-first of Clean street, afhankelijk van het gebruiksmoment.
-
-
   Streetwear in 2026 draait om slimme en dagelijks draagbare keuzes. Het gaat om
   een overtuigende look zonder schreeuwerig te zijn. Denk aan de vorm van je
   outfit (silhouet), een gebalanceerd kleurpalet en
@@ -47,6 +28,14 @@ excerpt: >
 author: content/authors/wsnl.md
 date: 2025-12-01T00:00:00.000Z
 ---
+
+**TL;DR: Wat je moet weten**
+
+* Streetwear in 2026 draait om slimme en dagelijks draagbare keuzes die overtuigend zijn zonder schreeuwerig te zijn.
+* De look is gebouwd op drie pijlers: een duidelijke vorm (silhouet), een gebalanceerd kleurenpalet en laagjes (layering).
+* Focus op balans in proporties (bijv. één oversized kledingstuk met een strakkere tegenhanger) om je look doordacht te laten zijn.
+* Integratie van functionele details en het slim combineren van texturen (mat met glans) zorgen voor diepte.
+* Je kiest een stijl aanpak uit de drie richtingen: Statement-led, Comfort-first of Clean street, afhankelijk van het gebruiksmoment.
 
 ## **Trends en wat je moet weten over streetwear trends 2026**
 

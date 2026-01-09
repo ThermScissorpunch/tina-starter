@@ -62,11 +62,11 @@ Bekend om zijn minimalistische, architecturale en vaak compacte ontwerpen. Staat
 
 **Q2: Welke draagstijl is het meest veelzijdig?**
 
-\*\*A: \*\*Een crossbody draagwijze geeft vrijheid en werkt goed wanneer je veel onderweg bent. Voor een geklede uitstraling is een hand- of schoudermodel ideaal. Bedenk vooral hoe je tas het vaakst zal hangen tijdens je dag.
+**A:** Een crossbody draagwijze geeft vrijheid en werkt goed wanneer je veel onderweg bent. Voor een geklede uitstraling is een hand- of schoudermodel ideaal. Bedenk vooral hoe je tas het vaakst zal hangen tijdens je dag.
 
 **Q3: Welke kleur werkt het beste bij mijn garderobe?**
 
-\*\*A: \*\*Sluit aan op wat je het meest draagt. Neutrale tinten mengen moeiteloos en geven rust. Wil je je outfit een twist geven, kies dan een kleur die contrasteert met je jassen en knitwear.
+**A: **Sluit aan op wat je het meest draagt. Neutrale tinten mengen moeiteloos en geven rust. Wil je je outfit een twist geven, kies dan een kleur die contrasteert met je jassen en knitwear.
 
 **Q4: Hoe haal ik het meeste uit mijn investering?**
 

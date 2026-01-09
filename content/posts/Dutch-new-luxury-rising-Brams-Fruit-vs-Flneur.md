@@ -24,9 +24,6 @@ date: 2025-12-03T23:00:00.000Z
 ## **TL;DR: Wat je moet weten**
 
 * Het artikel vergelijkt twee labels uit de Dutch New Luxury-beweging: Bram's Fruit en Flâneur.
-
-<!---->
-
 * Door het ontbreken van specifieke materiaal- of prijsinformatie, focus je op stijlgevoel en toepasbaarheid in je dagelijks leven.
 
 <!---->
@@ -81,22 +78,20 @@ Dutch New Luxury draait om gevoel en finesse. De sleutel is combineren met aanda
 
 ## **Veelgestelde vragen**
 
-**Q1: Wat is de essentie van Dutch New Luxury in deze context?**
+### **Q1: Wat is de essentie van Dutch New Luxury in deze context?**
 
 **A:** Het draait om hedendaagse luxe in Nederland; kleding die door finesse en aandacht voor detail net zo goed werkt in het dagelijks leven als op speciale momenten. Het is een combinatie van scherpe smaak en moeiteloze draagbaarheid.
 
-**Q2: Wanneer kies ik voor Bram's Fruit en wanneer voor Flâneur?**
+### **Q2: Wanneer kies ik voor Bram's Fruit en wanneer voor Flâneur?**
 
 **A:** Ga voor Flâneur als je een label zoekt dat je prikkelt en dat je bestaande outfits moeiteloos versterkt. Kies Bram's Fruit wanneer je voorkeur uitgaat naar rustige, elegante combinaties die bouwen op een kalm silhouet.
 
-**Q3: Hoe kan ik de items van deze labels het beste combineren?**
+### **Q3: Hoe kan ik de items van deze labels het beste combineren?**
 
 **A:** De sleutel zit in textuur en proporties. Creëer diepte door te spelen met contrasten (bijvoorbeeld een strakke pantalon met een zachte trui). Houd het kleurpalet rustig om de focus op de finesse van de kledingstukken te leggen.
 
-**Q4: Hoe weet ik of mijn keuze duurzaam is voor mijn garderobe?**
+### **Q4: Hoe weet ik of mijn keuze duurzaam is voor mijn garderobe?**
 
 **A:** De beste keuze is het label dat in meerdere situaties in jouw week past, van een koffiedate tot een nette borrel. Dit maakt het item multifunctioneel en zorgt ervoor dat je het vaker zult dragen.
-
-##
 
 Dutch New Luxury draait om bewuste keuzes en een look die klopt met jouw leven. Met Bram's Fruit en Flâneur als namen kies je op gevoel, toepasbaarheid en hoe de look in je week past. Dat is waar stijl echt tot leven komt. Wil je sparren over combinaties of je garderobe scherper neerzetten? Bij Winkelstraat denken we graag met je mee, altijd op basis van wat jij al hebt en waar je naartoe wil.

@@ -29,8 +29,8 @@ De beste tussenjas voor 2026 is zonder twijfel de **Technical Shell** of de luxe
 
 Merken als **Stone Island** en **C.P. Company** zijn pioniers in dit segment. Zoek naar jassen gemaakt van innovatieve nylons of garment dyed stoffen. Deze materialen ademen als het warmer wordt, maar houden de koude wind tegen.
 
-* **Bekijk hier onze collectie: Stone Island Jassen**
-* **Bekijk hier onze collectie: C.P. Company Jassen**
+* **Bekijk hier onze collectie: [Stone Island Jassen](https://www.winkelstraat.nl/heren/jassen/designers/stone-island)**
+* **Bekijk hier onze collectie: [C.P. Company Jassen](https://www.winkelstraat.nl/heren/jassen/designers/cp-company)**
 
 ## **Waarom vervangt de gebreide polo de hoodie?**
 
@@ -38,26 +38,26 @@ De gebreide polo (knitted polo) vervangt de hoodie omdat mannenmode in 2026 "zac
 
 Je ziet deze trend sterk terug bij merken als **Daily Paper** en **ØLÅF**. Ze combineren de relaxte fit van streetwear met klassieke kraagjes en wol-mixen. Het is de perfecte tussenlaag: draag hem onder een colbert voor werk, of op een jeans in het weekend.
 
-* **Shop de trend: Bekijk T-Shirts & Polo’s**
-* **Shop de trend: Daily Paper**
+* **Shop de trend: Bekijk [T-Shirts](https://www.winkelstraat.nl/heren/shirts/t-shirts) & [Polo’s](https://www.winkelstraat.nl/heren/shirts/polo)**
+* **Shop de trend: [Daily Paper](https://www.winkelstraat.nl/designers/daily-paper)**
 
 ## **Welke broeken dragen we in het tussenseizoen?**
 
-De\*\* Wide-leg\*\* Jeans en de **Technical Cargo** blijven de favoriet. Skinny jeans zijn in 2026 definitief uit het modebeeld verdwenen voor de trendsetter.
+De **Wide-leg** Jeans en de **Technical Cargo** blijven de favoriet. Skinny jeans zijn in 2026 definitief uit het modebeeld verdwenen voor de trendsetter.
 
 Voor de overgang van winter naar lente kies je voor zwaardere katoensoorten of denim in een 'mid-wash' (niet te donker, niet te licht). Merken als **Amiri** en \*\*Represent \*\*bieden denims die perfect vallen over je sneakers, wat essentieel is voor het silhouet van dit seizoen.
 
-* **Ontdek hier: Heren Jeans**
-* **Ontdek hier: Cargo Broeken**
+* **Ontdek hier: [Heren Jeans](https://www.winkelstraat.nl/heren/jeans)**
+* **Ontdek hier: [Cargo Broeken](https://www.winkelstraat.nl/search?query=cargo%20broek%20heren)**
 
 ## **Hoe combineer je schoenen in de winter-lente overgang?**
 
-In de overgangsperiode zien we een verschuiving van de extreem grove "dad shoe" naar de \*\*gestroomlijnde retro sneaker \*\*en de **luxury loafer**.
+In de overgangsperiode zien we een verschuiving van de extreem grove "dad shoe" naar de **gestroomlijnde retro sneaker** en de **luxury loafer**.
 
 Als het regent, kies je voor een leren sneaker van merken als **Filling Pieces** of een robuuste loper van **Nubikk**. Is het droog? Dan is de loafer met een dikkere zool dé manier om je streetwear outfit een 'high fashion' upgrade te geven.
 
-* **Bekijk alle: Heren Sneakers**
-* **Bekijk alle: Loafers**
+* **Bekijk alle: [Heren Sneakers](https://www.winkelstraat.nl/heren/schoenen/sneakers)**
+* **Bekijk alle: [Loafers](https://www.winkelstraat.nl/heren/schoenen/loafers)**
 
 ## **Veelgestelde Vragen (FAQ)**
 
@@ -67,7 +67,7 @@ De kleuren voor het tussenseizoen van 2026 zijn 'Aardse Tech-tinten'. Denk aan S
 
 ### **Wanneer start de verkoop van de voorjaarscollectie?**
 
-Bij Winkelstraat druppelen de eerste voorjaarscollecties (SS26) binnen vanaf eind januari. Dit is het perfecte moment om 'Key Pieces' zoals jassen en knitwear te kopen voordat ze uitverkocht zijn.
+Bij [Winkelstraat](https://www.winkelstraat.nl/) druppelen de eerste voorjaarscollecties (SS26) binnen vanaf eind januari. Dit is het perfecte moment om 'Key Pieces' zoals jassen en knitwear te kopen voordat ze uitverkocht zijn.
 
 ### **Is layering nog steeds in de mode?**
 

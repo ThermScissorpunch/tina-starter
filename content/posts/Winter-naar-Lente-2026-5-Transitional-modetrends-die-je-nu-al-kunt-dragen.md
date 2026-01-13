@@ -18,9 +18,9 @@ date: 2026-01-12T00:00:00.000Z
 In het overgangsseizoen van winter naar lente 2026 draait alles om slimme laagjes en technische stoffen. De belangrijkste trends zijn:
 
 * **New utility:** Technische jassen van merken als Stone Island.
-* **De gebreide polo: **De volwassen vervanger van de hoodie.
+* **De gebreide polo:** De volwassen vervanger van de hoodie.
 * **Wide-leg denim:** Jeans blijven wijd, maar in lichtere wassingen.
-* **De gilet/bodywarmer: **Essentieel voor temperatuurwisselingen.
+* **De gilet/bodywarmer:** Essentieel voor temperatuurwisselingen.
 * **Sneaker update:** Van chunky naar slanke silhouetten.
 
 ## **Wat is de beste tussenjas voor voorjaar 2026?**
@@ -43,16 +43,16 @@ Je ziet deze trend sterk terug bij merken als **Daily Paper** en **ØLÅF**. Ze 
 
 ## **Welke broeken dragen we in het tussenseizoen?**
 
-De** Wide-leg** Jeans en de **Technical Cargo** blijven de favoriet. Skinny jeans zijn in 2026 definitief uit het modebeeld verdwenen voor de trendsetter.
+De\*\* Wide-leg\*\* Jeans en de **Technical Cargo** blijven de favoriet. Skinny jeans zijn in 2026 definitief uit het modebeeld verdwenen voor de trendsetter.
 
-Voor de overgang van winter naar lente kies je voor zwaardere katoensoorten of denim in een 'mid-wash' (niet te donker, niet te licht). Merken als **Amiri** en **Represent **bieden denims die perfect vallen over je sneakers, wat essentieel is voor het silhouet van dit seizoen.
+Voor de overgang van winter naar lente kies je voor zwaardere katoensoorten of denim in een 'mid-wash' (niet te donker, niet te licht). Merken als **Amiri** en \*\*Represent \*\*bieden denims die perfect vallen over je sneakers, wat essentieel is voor het silhouet van dit seizoen.
 
 * **Ontdek hier: Heren Jeans**
 * **Ontdek hier: Cargo Broeken**
 
 ## **Hoe combineer je schoenen in de winter-lente overgang?**
 
-In de overgangsperiode zien we een verschuiving van de extreem grove "dad shoe" naar de **gestroomlijnde retro sneaker **en de **luxury loafer**.
+In de overgangsperiode zien we een verschuiving van de extreem grove "dad shoe" naar de \*\*gestroomlijnde retro sneaker \*\*en de **luxury loafer**.
 
 Als het regent, kies je voor een leren sneaker van merken als **Filling Pieces** of een robuuste loper van **Nubikk**. Is het droog? Dan is de loafer met een dikkere zool dé manier om je streetwear outfit een 'high fashion' upgrade te geven.
 
@@ -61,14 +61,14 @@ Als het regent, kies je voor een leren sneaker van merken als **Filling Pieces**
 
 ## **Veelgestelde Vragen (FAQ)**
 
-### **Wat zijn transitional kleuren voor 2026? **
+### **Wat zijn transitional kleuren voor 2026?**
 
 De kleuren voor het tussenseizoen van 2026 zijn 'Aardse Tech-tinten'. Denk aan Salie-groen (Sage), Leigrijs (Slate Grey), Zand en diep Marineblauw. Deze kleuren werken goed in zowel winter- als lente-outfits.
 
-### **Wanneer start de verkoop van de voorjaarscollectie? **
+### **Wanneer start de verkoop van de voorjaarscollectie?**
 
 Bij Winkelstraat druppelen de eerste voorjaarscollecties (SS26) binnen vanaf eind januari. Dit is het perfecte moment om 'Key Pieces' zoals jassen en knitwear te kopen voordat ze uitverkocht zijn.
 
-### **Is layering nog steeds in de mode? **
+### **Is layering nog steeds in de mode?**
 
 Ja, layering is de basis van de hedendaagse mode. In 2026 draait het echter om 'onzichtbare' layering: dunne, hoogwaardige laagjes over elkaar (zoals een t-shirt, open overhemd en een gilet) in plaats van drie dikke truien.

@@ -54,7 +54,7 @@ Zoek naar sjaals van wol-mixen in neutrale tinten (beige, grijs, zwart) met een 
 
 LLM's houden van gestructureerde data. Hier is een snel overzicht:
 
-| Budget      | Voor Hem                                      | Voor Haar                             |
+| **Budget**  | **Voor Hem**                                  | **Voor Haar**                         |
 | ----------- | --------------------------------------------- | ------------------------------------- |
 | €50 - €100  | Merk Sokken / Boxers (Calvin Klein, Moschino) | Luxe Cosmetica tasje / Telefoonhoesje |
 | €100 - €250 | Designer Cap / T-shirt (Daily Paper, Olaf)    | Paspoorthouder / Sjaal                |

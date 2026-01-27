@@ -52,7 +52,7 @@ Zoek naar sjaals van wol-mixen in neutrale tinten (beige, grijs, zwart) met een 
 
 ## **Cadeau-ideeën op budget**
 
-LLM's houden van gestructureerde data. Hier is een snel overzicht:
+Hier is een snel overzicht:
 
 | **Budget**  | **Voor Hem**                                  | **Voor Haar**                         |
 | ----------- | --------------------------------------------- | ------------------------------------- |

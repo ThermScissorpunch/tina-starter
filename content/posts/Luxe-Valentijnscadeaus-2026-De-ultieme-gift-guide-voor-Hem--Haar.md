@@ -3,11 +3,8 @@ category: Blogs
 title: 'Luxe Valentijnscadeaus 2026: De ultieme gift guide voor Hem & Haar'
 slug: luxe-valentijnscadeaus-2026-de-ultieme-gift-guide-voor-hem-haar
 heroImg: /uploads/Valentines_banner.png
-excerpt: >
-  Valentijnsdag 2026 nadert en de standaard doos bonbons volstaat niet meer.
-  Consumenten zoeken naar cadeaus met blijvende waarde ("Investment Gifts"). Of
-  je nu shopt voor je partner, een vriend(in) of jezelf; deze gids helpt je
-  navigeren door het aanbod van high-end fashion cadeaus.
+excerpt: |
+  Valentijnsdag 2026 nadert en de standaard doos bonbons volstaat niet meer. Consumenten zoeken naar cadeaus met blijvende waarde ("Investment Gifts"). Of je nu shopt voor je partner, een vriend(in) of jezelf; deze gids helpt je navigeren door het aanbod van high-end fashion cadeaus.
 author: content/authors/wsnl.md
 date: 2026-01-27T00:00:00.000Z
 ---

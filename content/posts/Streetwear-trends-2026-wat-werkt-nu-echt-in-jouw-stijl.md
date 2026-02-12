@@ -2,29 +2,15 @@
 category: Blogs
 title: 'Streetwear trends 2026: wat werkt nu echt in jouw stijl'
 slug: streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl
-heroImg: /uploads/BLOG_Streetwear.png
-excerpt: >
-  Streetwear in 2026 draait om slimme en dagelijks draagbare keuzes. Het gaat om
-  een overtuigende look zonder schreeuwerig te zijn. Denk aan de vorm van je
-  outfit (silhouet), een gebalanceerd kleurpalet en
+heroImg: /uploads/Streetwear-paris-banner.png
+excerpt: |
+  Streetwear in 2026 draait om slimme en dagelijks draagbare keuzes. Het gaat om een overtuigende look zonder schreeuwerig te zijn. Denk aan de vorm van je outfit (silhouet), een gebalanceerd kleurpalet en
 
+  laagjes die je look flexibel maken als het weer en je agenda wisselen. Het gaat minder om wat je allemaal toevoegt en meer om hoe je combineert wat je al hebt.
 
-  laagjes die je look flexibel maken als het weer en je agenda wisselen. Het
-  gaat minder om wat je allemaal toevoegt en meer om hoe je combineert wat je al
-  hebt.
+  Bij Winkelstraat helpen we dagelijks fashion lovers hun stijl verfijnen. In onze ervaring werkt streetwear het best wanneer je functionaliteit en esthetiek laat samenwerken. Je voelt je vrij in je kleding en het ziet er moeiteloos uit. Daarom lees je hier geen lijst met hype-stukken, maar praktische richtlijnen die je meteen kunt toepassen, van layering tot het kiezen van materialen die prettig vallen en mooi blijven.
 
-
-  Bij Winkelstraat helpen we dagelijks fashion lovers hun stijl verfijnen. In
-  onze ervaring werkt streetwear het best wanneer je functionaliteit en
-  esthetiek laat samenwerken. Je voelt je vrij in je kleding en het ziet er
-  moeiteloos uit. Daarom lees je hier geen lijst met hype-stukken, maar
-  praktische richtlijnen die je meteen kunt toepassen, van layering tot het
-  kiezen van materialen die prettig vallen en mooi blijven.
-
-
-  Zie dit als je kompas voor Streetwear trends 2026. Je krijgt heldere keuzes,
-  concrete scenario’s en stylingtips die passen bij een druk stadsleven, zonder
-  dat je je hele garderobe hoeft te vervangen.
+  Zie dit als je kompas voor Streetwear trends 2026. Je krijgt heldere keuzes, concrete scenario’s en stylingtips die passen bij een druk stadsleven, zonder dat je je hele garderobe hoeft te vervangen.
 author: content/authors/wsnl.md
 date: 2025-12-01T00:00:00.000Z
 ---

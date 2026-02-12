@@ -50,7 +50,7 @@ Warme parfums zijn duidelijker aanwezig en blijven lang hangen. Vaak omschreven 
 * cacao
 * musk
 
-****![](/uploads/montale-parfum.png)
+\*\*\*\*![](/uploads/montale-parfum.png)
 
 **Goede opties:**
 
@@ -107,7 +107,7 @@ Je ruikt ze zelf vaak minder, maar anderen juist meer. Ze mengen met je huid en 
 * iso e super
 * musk
 
-****![](/uploads/molcule-02-parfum.png)
+\*\*\*\*![](/uploads/molcule-02-parfum.png)
 
 **Goede opties:**
 

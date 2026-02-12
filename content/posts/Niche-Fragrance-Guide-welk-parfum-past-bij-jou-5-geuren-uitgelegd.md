@@ -29,11 +29,13 @@ Dit zijn de meest toegankelijke geuren. Ze openen fris en schoon en worden zelde
 * neroli
 * lichte kruiden
 
+![](/uploads/parfum-aqua-di-parma.png)
+
 **Goede opties:**
 
 * [Acqua di Parma Colonia](https://www.winkelstraat.nl/designers/aqua-di-parma/parfum-groen-groen-acdd1f7d-97da-4566-b28c-2e083eb37293.html) → klassieke citrus en lavendel
 * [Acqua di Parma Fico di Amalfi ](https://www.winkelstraat.nl/designers/aqua-di-parma/parfum-blauw-blauw-15d85ac6-84c0-498c-9950-abacb3d1375a.html)→ citrus met vijg
-* [Diptyque Eau des Sens](https://www.winkelstraat.nl/designers/diptyque/eau-des-sens-edt100-ml-rosso-rood-20cf6cda-7f82-43f7-bad8-f16139f2401d.html) → sinaasappelbloesem en frisse groene noten 
+* [Diptyque Eau des Sens](https://www.winkelstraat.nl/designers/diptyque/eau-des-sens-edt100-ml-rosso-rood-20cf6cda-7f82-43f7-bad8-f16139f2401d.html) → sinaasappelbloesem en frisse groene noten
 * [Sospiro Vibrato](https://www.winkelstraat.nl/designers/sospiro/vibrato-donkergroen-e9dd70f6-d1db-4d1e-a41e-1f47f3c2c74e.html) → frisse citrus met zachte houtbasis
 
 ## Warm & zoet (vanille, amber, gourmand)
@@ -48,12 +50,13 @@ Warme parfums zijn duidelijker aanwezig en blijven lang hangen. Vaak omschreven 
 * cacao
 * musk
 
+****![](/uploads/montale-parfum.png)
+
 **Goede opties:**
 
 * [Montale Intense Café](https://www.winkelstraat.nl/designers/montale/intense-caf--dark-purple-paars-6af5b29b-536b-45c7-b51d-05daad269db0.html) → koffie, roos, vanille
 * [Montale Lucky Candy](https://www.winkelstraat.nl/designers/montale/lucky-candy-pink-roze-0d0ba49f-f9dc-406e-a4fb-72aad8383c19.html) → zoet, fruitig, bijna snoepachtig
 * [Montale Dark Vanilla](https://www.winkelstraat.nl/designers/montale/dark-vanilla-dark-purple-paars-8a12aa1e-d96a-44c7-b3c8-89b03b8fbdec.html) → diepe vanille en amber
-*
 
 ## Houtachtig & natuurlijk (rustig, subtiel)
 
@@ -65,6 +68,8 @@ Deze geuren zitten dichter op de huid en ruiken minder “parfumerig”. Vaak wa
 * cederhout
 * vetiver
 * bladeren
+
+![](/uploads/molecule-01-parfum.png)
 
 **Goede opties:**
 
@@ -84,6 +89,8 @@ Dit zijn de geuren die je niet meteen kunt plaatsen. Ze ontwikkelen zich sterk o
 * warme houtsoorten
 * amberachtige tonen
 
+![](/uploads/montale-parfum-arabians-tonka.png)
+
 **Goede opties:**
 
 * [Montale Arabians Tonka](https://www.winkelstraat.nl/designers/montale/arabians-tonka-black-zwart-77575437-c8fe-4a51-a8f4-d9c7402776de.html) → kruidig, warm en tonkaboon (zeer aanwezig)
@@ -99,6 +106,8 @@ Je ruikt ze zelf vaak minder, maar anderen juist meer. Ze mengen met je huid en 
 * ambroxan
 * iso e super
 * musk
+
+****![](/uploads/molcule-02-parfum.png)
 
 **Goede opties:**
 

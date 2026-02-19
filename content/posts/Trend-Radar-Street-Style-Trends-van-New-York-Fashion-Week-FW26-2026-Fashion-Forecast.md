@@ -79,4 +79,4 @@ Gedragen denim, oversized vormen en zware boots werden gecombineerd in gecontrol
 
 NYFW FW26 liet geen nieuwe garderobe zien en probeerde dat ook niet. Wat wel zichtbaar werd, is een verschuiving naar hoe kleding wordt samengesteld.
 
-De trends draaien minder om specifieke items en meer om keuzes: combineren, laagjes en contrast. Misschien is dat ook waarom ze opvallen — ze vragen niet om een compleet nieuwe kast, maar om een andere blik op wat je al hebt.
+De trends draaien minder om specifieke items en meer om keuzes: combineren, laagjes en contrast. Misschien is dat ook waarom ze opvallen — ze vragen niet om een compleet nieuwe kast, maar om een andere blik op wat je al hebt. 

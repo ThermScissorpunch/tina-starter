@@ -21,13 +21,13 @@ GIB maakt muziek en deelt daarnaast op zijn socials regelmatig outfits en stylin
 
 Zijn stijl voelt persoonlijk en herkenbaar: niet trendgedreven, maar opgebouwd uit stukken die hij zelf goed vindt werken en op verschillende manieren blijft dragen.
 
-### Aflevering 1 — eerste indruk
+### Deel 1
 
 In de eerste aflevering nemen we een eerste kijkje in zijn stijl. GIB laat verschillende items uit zijn kast zien en vertelt waarom hij ze draagt en hoe hij ze combineert.
 
 👉 Bekijk aflevering 1 [hier](https://www.instagram.com/reel/DTGR37QDWT6/?utm_source=ig_web_copy_link\&igsh=MzRlODBiNWFlZA==)
 
-### Aflevering 2 — favoriete items
+### Deel 2
 
 In de tweede aflevering gaan we verder zijn garderobe in. Hij laat zijn favoriete pieces zien, vertelt hoe hij ze stylet en deelt korte verhalen achter zijn favoriete items.
 

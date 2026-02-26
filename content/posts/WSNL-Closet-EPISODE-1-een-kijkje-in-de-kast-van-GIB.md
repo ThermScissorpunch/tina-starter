@@ -25,13 +25,13 @@ Zijn stijl voelt persoonlijk en herkenbaar: niet trendgedreven, maar opgebouwd u
 
 In de eerste aflevering nemen we een eerste kijkje in zijn stijl. GIB laat verschillende items uit zijn kast zien en vertelt waarom hij ze draagt en hoe hij ze combineert.
 
-👉 Bekijk aflevering 1 [hier](https://www.instagram.com/reel/DTGR37QDWT6/?utm_source=ig_web_copy_link\&igsh=MzRlODBiNWFlZA==)
+👉 Bekijk deel 1 [hier](https://www.instagram.com/reel/DTGR37QDWT6/?utm_source=ig_web_copy_link\&igsh=MzRlODBiNWFlZA==)
 
 ### Deel 2
 
 In de tweede aflevering gaan we verder zijn garderobe in. Hij laat zijn favoriete pieces zien, vertelt hoe hij ze stylet en deelt korte verhalen achter zijn favoriete items.
 
-👉 Bekijk aflevering 2 [hier](https://www.instagram.com/reel/DTLb0l3DdqH/?utm_source=ig_web_copy_link\&igsh=MzRlODBiNWFlZA==)
+👉 Bekijk deel 2 [hier](https://www.instagram.com/reel/DTLb0l3DdqH/?utm_source=ig_web_copy_link\&igsh=MzRlODBiNWFlZA==)
 
 ## Ook: This or That met GIB
 

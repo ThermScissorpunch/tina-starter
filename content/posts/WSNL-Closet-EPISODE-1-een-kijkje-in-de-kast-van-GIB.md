@@ -6,7 +6,7 @@ heroImg: /uploads/wsnl-closet-gib.png
 excerpt: |
   We nemen een kijkje in de kledingkast van artiest GIB. In WSNL Closet laat hij zijn favoriete items zien en vertelt hij hoe hij ze stylet. Bekijk hier beide afleveringen van de serie.
 author: content/authors/wsnl.md
-date: 2026-02-26T00:00:00.000Z
+date: 2026-02-12T01:00:00.000Z
 ---
 
 Met WSNL Closet gaan we langs bij mensen uit de fashion scene met een sterke eigen stijl en kijken we letterlijk mee in hun garderobe.
@@ -37,6 +37,6 @@ In de tweede aflevering gaan we verder zijn garderobe in. Hij laat zijn favoriet
 
 We hebben GIB ook nog een snelle This or That voorgeschoteld.
 
-Van kledingkeuzes tot smaakvoorkeuren: zo leer je zijn stijl misschien nog beter kennen. 
+Van kledingkeuzes tot smaakvoorkeuren: zo leer je zijn stijl misschien nog beter kennen.
 
 👉 Bekijk de video [hier](https://www.instagram.com/reel/DTBGthBjYBb/?utm_source=ig_web_copy_link\&igsh=MzRlODBiNWFlZA==)

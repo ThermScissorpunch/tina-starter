@@ -55,7 +55,7 @@ Ook Croyez liet van zich horen met hun \*Croyez Studio\* pop-up. Een ruimte waar
 
 ADE 2025 liet zien dat Amsterdam niet alleen een stad is voor beats, maar ook voor merken die cultuur, fashion en community willen samenbrengen. Van Saint Blanc tot Croyez, van Brams Fruit tot Filling Pieces, de events gaven een kijkje in een wereld waar muziek en stijl elkaar ontmoeten, en waar connecties net zo belangrijk zijn als de cocktails. Het was een week vol energie, exclusives en momenten die je nog lang bijblijven. Wie weet wat de volgende editie ons zal brengen.
 
-Ook benieuwd naar de laatste [streetwear trends van 2026](/features/streetwear-trends-2026)? Die sluiten naadloos aan bij de ADE-vibe.
+Ook benieuwd naar de laatste [streetwear trends van 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl)? Die sluiten naadloos aan bij de ADE-vibe.
 
 ## Veelgestelde vragen over ADE en fashion
 

@@ -47,7 +47,7 @@ Puma remixte hun Speedcat en Mostro tot een flat, en Louis Vuitton combineerde e
 
 Je draagt ze voor een bold vibe met baggy cargos en graphic hoodies, tilt ze naar een next level met oversized pakken en voor een meer girly look kun je ze combineren met een gekleurde panty. Precies dat is de kern van street culture: pieces uit hun originele context trekken en ze een compleet nieuwe uitstraling geven met je persoonlijke unieke twist.
 
-Meer inspiratie voor schoenen die je deze zomer wilt dragen? Bekijk dan ook de [beste zomer schoenentrends](/features/de-3-beste-zomer-schoenentrends-die-jij-nu-wilt-dragen).
+Meer inspiratie voor schoenen die je deze zomer wilt dragen? Bekijk dan ook de [beste zomer schoenentrends](/features/de-drie-beste-zomer-schoenen-trends-die-jij-nu-wilt-dragen).
 
 ## Wat maakt de ballerina nu anders dan vroeger?
 

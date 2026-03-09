@@ -51,7 +51,7 @@ De laatste show van Giorgio Armani voelde als een stijlvolle goodbye. Wat bedoel
 
 ## Welke kleurentrends zette Fendi neer voor SS26?
 
-Fendi SS26 laat zien dat kleur het nieuwe statement is. Van hemelsblauw met wit, zoals een trainingsjack en ultrakorte shorts tot de dramatische mix van rood, paars en roze in transparante blouses, bralettes en bloemenrokken, en zelfs subtieler, grijs met roze, waarbij minimalisme en speelsheid elkaar ontmoeten. Fendi toont hiermee niet alleen welke kleuren we volgend voorjaar zullen dragen, maar ook een hele nieuwe kant van het modehuis. Die kleurige trend zagen we ook terug in de [key trends voor 2025](/features/the-key-trends-for-2025).
+Fendi SS26 laat zien dat kleur het nieuwe statement is. Van hemelsblauw met wit, zoals een trainingsjack en ultrakorte shorts tot de dramatische mix van rood, paars en roze in transparante blouses, bralettes en bloemenrokken, en zelfs subtieler, grijs met roze, waarbij minimalisme en speelsheid elkaar ontmoeten. Fendi toont hiermee niet alleen welke kleuren we volgend voorjaar zullen dragen, maar ook een hele nieuwe kant van het modehuis. Die kleurige trend zagen we ook terug in de [key trends voor 2025](/features/keytrends2025).
 
 ![Diesel](/uploads/BLOG_Diesel.png)
 

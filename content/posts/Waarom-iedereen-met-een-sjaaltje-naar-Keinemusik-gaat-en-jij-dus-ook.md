@@ -46,7 +46,7 @@ Benieuwd naar meer accessoiretrends? Bekijk ook [5x de accessoires van fashion i
 
 Op 5 juli in Amsterdam zal die scarf het verschil maken. Gelukkig hebben wij precies de juiste selectie. Lichtgewicht, stijlvol en ready to rave.
 
-Lees ook hoe mode en muziek samenkwamen tijdens [ADE 2025](/features/dit-heb-je-gemist-tijdens-ade-brands-beats-en-banana-booths) en ontdek de nieuwste [streetwear trends van 2026](/features/streetwear-trends-2026).
+Lees ook hoe mode en muziek samenkwamen tijdens [ADE 2025](/features/dit-heb-je-gemist-tijdens-ade-brands-beats-en-banana-booths) en ontdek de nieuwste [streetwear trends van 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl).
 
 \[products:1930917,1825545, 1150644,1855953,1853424, 4b8ce324-e79b-49b7-bc1a-9223815bb6c4,1953015,eaea9562-8d7d-4b2f-9d9f-59406eeb94ae]
 

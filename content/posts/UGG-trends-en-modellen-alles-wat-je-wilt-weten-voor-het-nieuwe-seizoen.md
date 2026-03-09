@@ -77,4 +77,4 @@ A: Kies voor klassiek Chestnut als je makkelijk wilt combineren; sand of pastelk
 
 Met UGG kies je niet alleen voor comfort, maar ook voor tijdloze stijl en eindeloze combinatiemogelijkheden. Of je nu valt voor de Ultra Mini of toch bij de Classic Short blijft, je draagt altijd een stukje Californie bij je, maar dan wel afgestemd op Nederlandse winters.
 
-Lees ook [waarom we nog steeds UGGs dragen](/features/waarom-we-nog-steeds-uggs-dragen) en ontdek hoe het merk al jaren relevant blijft. Benieuwd naar de [streetwear trends van 2026](/features/streetwear-trends-2026)? Daar passen UGGs prima bij.
+Lees ook [waarom we nog steeds UGGs dragen](/features/waarom-we-nog-steeds-uggs-dragen) en ontdek hoe het merk al jaren relevant blijft. Benieuwd naar de [streetwear trends van 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl)? Daar passen UGGs prima bij.

@@ -42,7 +42,7 @@ Of je nu kiest voor een basic zwart paar of een felle kleur, deze eenvoudige sch
 
 Wat ooit schools was, is nu street. Mary Janes zijn terug, maar dan modieuzer dan ooit. Prada en Coperni geven ze stevige zolen en opvallende gespen, waardoor ze perfect zijn voor een avond uit en een casual office look.
 
-Van sneakers tot laarzen: bijna elk model krijgt die kenmerkende strap. Deze stijl is misschien niet voor iedereen, maar juist die mix van ‘ugly’ en cool maakt ‘m iconisch. Ook fan van onverwachte schoenentrends? Bekijk hoe de [ballerina een street staple](/features/de-ballerina-als-street-staple) werd.
+Van sneakers tot laarzen: bijna elk model krijgt die kenmerkende strap. Deze stijl is misschien niet voor iedereen, maar juist die mix van ‘ugly’ en cool maakt ‘m iconisch. Ook fan van onverwachte schoenentrends? Bekijk hoe de [ballerina een street staple](/features/de-ballerina-als-straat-staple) werd.
 
 ## Waarom zijn clogs het perfecte comfortstatement?
 

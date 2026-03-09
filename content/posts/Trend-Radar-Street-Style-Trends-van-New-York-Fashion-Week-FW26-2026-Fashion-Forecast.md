@@ -55,7 +55,7 @@ Foto: Calvin Klein
 
 Opvallend vaak leek de outfit te beginnen bij de jas. Outerwear bepaalde het silhouet en de proporties, terwijl de rest van de look relatief eenvoudig bleef.
 
-Grote volumes, texturen en duidelijke vormen kregen voorrang op detail. De jas werd daarmee geen laag bovenop een outfit, maar het uitgangspunt ervan. Die trend zagen we ook terug bij de [streetwear trends van 2026](/features/streetwear-trends-2026).
+Grote volumes, texturen en duidelijke vormen kregen voorrang op detail. De jas werd daarmee geen laag bovenop een outfit, maar het uitgangspunt ervan. Die trend zagen we ook terug bij de [streetwear trends van 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl).
 
 ## Sharp-Toe Footwear
 

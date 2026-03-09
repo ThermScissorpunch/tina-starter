@@ -30,7 +30,7 @@ Foto: @Leviinas /@Winkelstraatnl
 
 Oorspronkelijk stonden loafers bekend als nette werkschoenen, vaak gezien in formele settings of bij schooluniformen. Tegenwoordig zijn ze juist het symbool van veelzijdigheid. Je ziet ze onder wijde jeans, met sportieve sokken, of juist gecombineerd met een nette pantalon.
 
-Die mix van casual en chic maakt loafers interessant voor zoveel verschillende stijlen en generaties. Wie de schoenentrends van deze zomer wil bekijken, vindt ook interessante alternatieven in de [beste zomer schoenentrends](/features/de-3-beste-zomer-schoenentrends-die-jij-nu-wilt-dragen).
+Die mix van casual en chic maakt loafers interessant voor zoveel verschillende stijlen en generaties. Wie de schoenentrends van deze zomer wil bekijken, vindt ook interessante alternatieven in de [beste zomer schoenentrends](/features/de-drie-beste-zomer-schoenen-trends-die-jij-nu-wilt-dragen).
 
 ## Hoe style je loafers in een streetwear-outfit?
 

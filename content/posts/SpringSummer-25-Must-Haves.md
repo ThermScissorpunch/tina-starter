@@ -41,7 +41,7 @@ lastUpdated: 2026-03-09T00:00:00.000Z
 
 ## Hoe maakte botergeel zijn comeback in de mode?
 
-Hoewel botergeel misschien niet meteen de eerste kleur is die je aan je garderobe toevoegt, is het toch een kleur die zich al eerder heeft laten zien in de modewereld. We zagen 'm al eerder tijdens Copenhagen Fashion Week in 2024. Waar de kleur natuurlijk al veel eerder is omarmd in de Scandinavische stijl. Al snel volgden het afgelopen jaar de catwalk bij modehuizen als Jacquemus, Gucci en Dries Van Noten. En nu, in 2025, blijft botergeel ons in de modewereld verrassen met zijn aanwezigheid. Benieuwd welke andere kleuren en trends dit jaar domineren? Bekijk de [key trends voor 2025](/features/the-key-trends-for-2025).
+Hoewel botergeel misschien niet meteen de eerste kleur is die je aan je garderobe toevoegt, is het toch een kleur die zich al eerder heeft laten zien in de modewereld. We zagen 'm al eerder tijdens Copenhagen Fashion Week in 2024. Waar de kleur natuurlijk al veel eerder is omarmd in de Scandinavische stijl. Al snel volgden het afgelopen jaar de catwalk bij modehuizen als Jacquemus, Gucci en Dries Van Noten. En nu, in 2025, blijft botergeel ons in de modewereld verrassen met zijn aanwezigheid. Benieuwd welke andere kleuren en trends dit jaar domineren? Bekijk de [key trends voor 2025](/features/keytrends2025).
 
 ## Hoe combineer je botergeel in je outfit?
 
@@ -53,7 +53,7 @@ Het ziet er bijvoorbeeld geweldig uit naast bruin, een zachte pastelroze, of zel
 
 Botergeel is de perfecte balans tussen energie en subtiliteit. Het is niet te in-your-face, maar geeft je outfit wel een frisse draai. Of je het nu draagt in een oversized hoodie, een blazer of een simpele tas, deze zachte tint geeft altijd een luxe vibe zonder dat je over de top hoeft te gaan.
 
-Dus, de vraag is niet meer waarom we allemaal op roomboter willen lijken, maar hoe je deze zachte, zonnige tint in je garderobe toevoegt. Het is een kleur die je outfit meteen naar een hoger niveau tilt en die perfect past bij de casual-chic vibe die we dit seizoen omarmen. Het is tijd om te smelten voor deze trendkleur, die ons dit seizoen een flinke dosis zonneschijn en stijl brengt. Meer kleur- en stijlinspiratie vind je in onze [streetwear trends 2026](/features/streetwear-trends-2026) en de [sneaker trends 2026](/features/sneaker-trends-2026).
+Dus, de vraag is niet meer waarom we allemaal op roomboter willen lijken, maar hoe je deze zachte, zonnige tint in je garderobe toevoegt. Het is een kleur die je outfit meteen naar een hoger niveau tilt en die perfect past bij de casual-chic vibe die we dit seizoen omarmen. Het is tijd om te smelten voor deze trendkleur, die ons dit seizoen een flinke dosis zonneschijn en stijl brengt. Meer kleur- en stijlinspiratie vind je in onze [streetwear trends 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl) en de [sneaker trends 2026](/features/sneaker-trends-2026).
 
 ## Veelgestelde vragen over botergeel als modetrend
 

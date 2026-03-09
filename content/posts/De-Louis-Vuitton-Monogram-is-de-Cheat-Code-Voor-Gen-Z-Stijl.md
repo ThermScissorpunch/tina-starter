@@ -40,7 +40,7 @@ De repetitieve, bijna militaire precisie van het patroon creëert een visueel zw
 
 ### Iconische samenwerkingen die het patroon universeel maakten
 
-De print is kneedbaar. Iconische remixes van Takashi Murakami (die kleur en pop-art bracht) en de streetwear-erfenis van Virgil Abloh hebben het patroon uit de formele hoek getrokken. Hierdoor is de Monogram universeel draagbaar geworden. Benieuwd hoe andere merken hun [logo-strategie inzetten voor Gen Z](/features/streetwear-trends-2026)? Die aanpak verschilt enorm per huis.
+De print is kneedbaar. Iconische remixes van Takashi Murakami (die kleur en pop-art bracht) en de streetwear-erfenis van Virgil Abloh hebben het patroon uit de formele hoek getrokken. Hierdoor is de Monogram universeel draagbaar geworden. Benieuwd hoe andere merken hun [logo-strategie inzetten voor Gen Z](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl)? Die aanpak verschilt enorm per huis.
 
 ## Waarom is vintage LV de slimste zet voor Gen Z?
 

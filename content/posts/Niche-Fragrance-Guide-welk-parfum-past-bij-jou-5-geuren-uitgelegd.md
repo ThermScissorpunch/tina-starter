@@ -153,4 +153,4 @@ Dat hangt af van het type geur en je huidtype. Warme, zware geuren met vanille e
 
 ### Welk niche parfum is het beste voor beginners?
 
-Start met een fris citrusparfum zoals Acqua di Parma Colonia als je van schone geuren houdt. Wil je iets warmers? [Montale Intense Café](https://www.winkelstraat.nl/designers/montale/intense-caf--dark-purple-paars-6af5b29b-536b-45c7-b51d-05daad269db0.html) is een toegankelijke koffie-vanillegeur. Voor wie subtiel wil beginnen is Molecule 01 ideaal: bijna onzichtbaar maar toch aanwezig. Kies het type dat past bij jouw [stijl](/features/streetwear-trends-2026).
+Start met een fris citrusparfum zoals Acqua di Parma Colonia als je van schone geuren houdt. Wil je iets warmers? [Montale Intense Café](https://www.winkelstraat.nl/designers/montale/intense-caf--dark-purple-paars-6af5b29b-536b-45c7-b51d-05daad269db0.html) is een toegankelijke koffie-vanillegeur. Voor wie subtiel wil beginnen is Molecule 01 ideaal: bijna onzichtbaar maar toch aanwezig. Kies het type dat past bij jouw [stijl](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl).

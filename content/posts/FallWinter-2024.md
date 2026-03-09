@@ -32,13 +32,13 @@ In een wereld waarin stijl en identiteit hand in hand gaan, introduceren wij onz
 
 ## Welke trends bepalen het seizoen?
 
-De editorial vangt beweging en evolutie: van oversized silhouetten en technische stoffen tot verfijnde tailoring en expressieve streetwear-stijlen die de stedelijke cultuur weerspiegelen. Dit seizoen belichaamt het gevoel van vooruitgang — een combinatie van moeiteloze vrijheid en verfijning. Denk aan vloeiende lijnen, rijke texturen, en monochrome contrasten, die samen de esthetiek van New Luxury perfect vangen. Benieuwd welke trends er daarna kwamen? Bekijk de [key trends voor 2025](/features/the-key-trends-for-2025).
+De editorial vangt beweging en evolutie: van oversized silhouetten en technische stoffen tot verfijnde tailoring en expressieve streetwear-stijlen die de stedelijke cultuur weerspiegelen. Dit seizoen belichaamt het gevoel van vooruitgang — een combinatie van moeiteloze vrijheid en verfijning. Denk aan vloeiende lijnen, rijke texturen, en monochrome contrasten, die samen de esthetiek van New Luxury perfect vangen. Benieuwd welke trends er daarna kwamen? Bekijk de [key trends voor 2025](/features/keytrends2025).
 
 ![styles](/uploads/styles.png)
 
 ## Hoe komen High-End en streetwear samen?
 
-Voor de moderne garderobe die niet in hokjes te plaatsen is, brengt Fall/Winter 2024 een gedurfde dialoog tussen de gevestigde namen en opkomende lokale labels. High-End ontmoet straatcultuur, Contemporary wordt Premium, en Local Streetwear daagt conventies uit. Ontdek deze nieuwe golf van luxe, waar stijl niet alleen gedragen wordt, maar geleefd. Die verschuiving zie je ook terug in de [streetwear trends van 2026](/features/streetwear-trends-2026) en de [sneaker trends van 2026](/features/sneaker-trends-2026).
+Voor de moderne garderobe die niet in hokjes te plaatsen is, brengt Fall/Winter 2024 een gedurfde dialoog tussen de gevestigde namen en opkomende lokale labels. High-End ontmoet straatcultuur, Contemporary wordt Premium, en Local Streetwear daagt conventies uit. Ontdek deze nieuwe golf van luxe, waar stijl niet alleen gedragen wordt, maar geleefd. Die verschuiving zie je ook terug in de [streetwear trends van 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl) en de [sneaker trends van 2026](/features/sneaker-trends-2026).
 
 \[products: 1501673,1687888,1679864]
 

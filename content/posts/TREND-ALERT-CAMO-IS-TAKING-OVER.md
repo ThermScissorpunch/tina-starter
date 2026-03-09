@@ -49,7 +49,7 @@ Foto: @zoeyentl/@sophienoorrr
 
 De nieuwe generatie is klaar met alles wat té bedacht voelt. Camo heeft een rauwheid en attitude. Het past bij een bredere shift in fashion: kleding is fluïder, minder gebonden aan regels of hokjes.
 
-Het gaat niet meer om blind de trends volgen, maar om het ownen van je outfits op jouw manier. Zelfs als dat betekent dat je buiten de kudde loopt. Lees ook hoe [streetwear trends in 2026](/features/streetwear-trends-2026) deze richting nog verder doorzetten.
+Het gaat niet meer om blind de trends volgen, maar om het ownen van je outfits op jouw manier. Zelfs als dat betekent dat je buiten de kudde loopt. Lees ook hoe [streetwear trends in 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl) deze richting nog verder doorzetten.
 
 ## Veelgestelde vragen over de camo trend
 

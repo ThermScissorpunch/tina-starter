@@ -60,7 +60,7 @@ Winterweer is geen reden om je stijl op pauze te zetten. Integendeel. Met de jui
 
 Op zoek naar items om dit meteen toe te passen? Bekijk onze selectie [winterjassen](https://www.winkelstraat.nl/sale/heren/jassen), [UGGs](https://www.winkelstraat.nl/designers/ugg) en [knitwear essentials](https://www.winkelstraat.nl/search?query=knit) om je layering game winterproof te maken. Warm blijven is één ding, er goed uitzien terwijl je dat doet, is waar het verschil zit.
 
-Benieuwd hoe je je winterlayers straks omzet naar lentelooks? Lees dan [Winter naar Lente 2026: 5 transitional modetrends](/features/winter-naar-lente-2026-5-transitional-modetrends-die-je-nu-al-kunt-dragen). En voor inspiratie over hoe streetwear en layering samengaan, bekijk de [streetwear trends van 2026](/features/streetwear-trends-2026).
+Benieuwd hoe je je winterlayers straks omzet naar lentelooks? Lees dan [Winter naar Lente 2026: 5 transitional modetrends](/features/winter-naar-lente-2026-5-transitional-modetrends-die-je-nu-al-kunt-dragen). En voor inspiratie over hoe streetwear en layering samengaan, bekijk de [streetwear trends van 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl).
 
 ## Veelgestelde vragen over layering
 

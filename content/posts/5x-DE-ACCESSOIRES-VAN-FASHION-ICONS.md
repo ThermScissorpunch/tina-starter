@@ -54,7 +54,7 @@ De tas accessoires lijken momenteel de grootste trend te zijn. Bag charms zijn e
 
 Waar neutrale tinten voorheen nog de modescene domineerden, zijn het nu explosies van kleur die de show stelen. Denk aan felgele handtassen, kobaltblauwe schoenen, en knalroze petten. Hoe feller, hoe beter. Deze kleuren zijn niet alleen eyecatchers, maar zetten ook direct de toon voor een zelfverzekerde look. Influencers combineren ze juist met simpele basics om hun accessoires het podium te geven.
 
-Wil je weten welke streetwear-trends goed combineren met kleurrijke accessoires? Lees dan ook over de [streetwear trends van 2026](/features/streetwear-trends-2026).
+Wil je weten welke streetwear-trends goed combineren met kleurrijke accessoires? Lees dan ook over de [streetwear trends van 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl).
 
 ![Zonnebrillen](/uploads/Zonnebrillen_image.png)Foto: @sierrarenas
 

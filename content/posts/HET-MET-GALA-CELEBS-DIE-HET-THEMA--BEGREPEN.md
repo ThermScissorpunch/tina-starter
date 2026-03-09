@@ -103,7 +103,7 @@ In een op maat gemaakte look van Marc Jacobs liet Rihanna haar babybuik stralen.
 
 Het 2025 Met Gala was meer dan alleen een mode-evenement: het was een viering van de kracht van zwart dandyisme en de manier waarop mode kan dienen als een vorm van persoonlijke en culturele expressie. Van Joey King's experimentele benadering van het thema tot Damson Idris' hommage aan zowel klassieke tailoring als zijn eigen achtergrond, en Teyana Taylor's historische eerbetoon aan de zoot suit, werden de gasten van de avond het levende bewijs van de transformatieve kracht van mode.
 
-Benieuwd hoe tailoring en persoonlijke expressie zich vertaalden naar de catwalks? Lees dan ook onze [Milan Fashion Week highlights](/features/milan-fashion-week-de-highlights) en de [streetwear trends van 2026](/features/streetwear-trends-2026).
+Benieuwd hoe tailoring en persoonlijke expressie zich vertaalden naar de catwalks? Lees dan ook onze [Milan Fashion Week highlights](/features/milan-fashion-week-de-highlights) en de [streetwear trends van 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl).
 
 ## Veelgestelde vragen over het Met Gala 2025
 

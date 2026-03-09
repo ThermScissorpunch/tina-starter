@@ -87,7 +87,7 @@ De menukaart biedt een mooie mix van warme gerechten, met zowel vlees- als veget
 Locatie: 56 Rue de Lancry, 75010 Paris\
 Openingstijden: Dagelijks geopend, gesloten op zondag.
 
-Parijs is natuurlijk ook dé plek voor [streetwear](/features/streetwear-trends-2026) en vintage designer finds. En voor wie de Parijse stijl mee naar huis wil nemen: bekijk onze [sneaker trends voor 2026](/features/sneaker-trends-2026).
+Parijs is natuurlijk ook dé plek voor [streetwear](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl) en vintage designer finds. En voor wie de Parijse stijl mee naar huis wil nemen: bekijk onze [sneaker trends voor 2026](/features/sneaker-trends-2026).
 
 ## Veelgestelde vragen over Parijs
 

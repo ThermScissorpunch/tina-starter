@@ -23,7 +23,7 @@ lastUpdated: 2026-03-09T00:00:00.000Z
 
 Met WSNL Closet gaan we langs bij mensen uit de fashion scene met een sterke eigen stijl en kijken we letterlijk mee in hun garderobe.
 
-Geen trends, geen runway looks, maar kleding die iemand echt draagt. Favoriete pieces, outfits die vaak terugkomen en items met een verhaal. Benieuwd naar meer [streetwear trends voor 2026](/features/streetwear-trends-2026)?
+Geen trends, geen runway looks, maar kleding die iemand echt draagt. Favoriete pieces, outfits die vaak terugkomen en items met een verhaal. Benieuwd naar meer [streetwear trends voor 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl)?
 
 Voor de eerste editie gingen we langs bij artiest en content creator GIB.
 

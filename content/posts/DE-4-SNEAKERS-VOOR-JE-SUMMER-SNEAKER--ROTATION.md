@@ -46,7 +46,7 @@ Natuurlijk is er ook een meer draagbare variant zoals we al eerder zagen bij de 
 
 De Adidas Taekwondo is dit seizoen de sneaker voor wie houdt van minimalistisch en tegelijkertijd futuristisch. Oorspronkelijk ontwikkeld voor vechtsport, maar nu terug op straat dankzij het slanke silhouet, de gumzool en het ontbreken van veters. In een tijd waarin chunky sneakers plaatsmaken voor strakke, functionele modellen, voelt deze retro klassieker lekker fris.
 
-Je draagt ‘m makkelijk onder een wijde broek, rok of short en dankzij het ingetogen ontwerp past hij makkelijk in zowel casual als meer gestylede outfits (ook leuk: de Adidas Taekwondo [ballerina](/features/de-ballerina-als-street-staple)).
+Je draagt ‘m makkelijk onder een wijde broek, rok of short en dankzij het ingetogen ontwerp past hij makkelijk in zowel casual als meer gestylede outfits (ook leuk: de Adidas Taekwondo [ballerina](/features/de-ballerina-als-straat-staple)).
 
 ## Maken high-tops een comeback?
 
@@ -64,7 +64,7 @@ De tijd is eindelijk aangebroken, Saucony (spreek uit als: saw-kuh-nee) is takin
 
 En wat misschien het meest opvallend is: veel van hun nieuwste silhouetten ogen als een kruising tussen Asics sneakers en de Balenciaga Runner, dadcore met een vleugje Y2K. Geen hype, maar een consistente stroom aan goed doordachte drops die zowel de doorgewinterde sneakerhead als de modebewuste consument weten te raken.
 
-Welke stijl je ook kiest, het belangrijkste is dat je gaat voor de sneaker die echt bij jou past. Zin om je rotatie een upgrade te geven? Bekijk ook de [zomer schoenentrends](/features/de-3-beste-zomer-schoenentrends-die-jij-nu-wilt-dragen) voor nog meer inspiratie.
+Welke stijl je ook kiest, het belangrijkste is dat je gaat voor de sneaker die echt bij jou past. Zin om je rotatie een upgrade te geven? Bekijk ook de [zomer schoenentrends](/features/de-drie-beste-zomer-schoenen-trends-die-jij-nu-wilt-dragen) voor nog meer inspiratie.
 
 ## Veelgestelde vragen
 

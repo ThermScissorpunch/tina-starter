@@ -57,7 +57,7 @@ Wil je meer weten over hoe [accessoires bij fashion icons](/features/5keeraccess
 
 Kanye West en Bianca Censori zorgden voor opschudding nadat zij onverwachts, en Censori zelfs poedelnaakt, verschenen op de rode loper, ondanks dat ze niet waren uitgenodigd. Het paar poseerde voor enkele foto's voordat ze snel door de beveiliging werden verwijderd.
 
-Ook benieuwd naar de nieuwste [streetwear trends van 2026](/features/streetwear-trends-2026)? De Grammy-looks geven altijd een voorproefje van wat komen gaat.
+Ook benieuwd naar de nieuwste [streetwear trends van 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl)? De Grammy-looks geven altijd een voorproefje van wat komen gaat.
 
 ## Veelgestelde vragen over de 2025 Grammys
 

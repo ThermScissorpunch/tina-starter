@@ -48,7 +48,7 @@ USHER en Rick Owens horen inmiddels bij elkaar. Zijn aanwezigheid bij de show vo
 
 Rick Owens blijft opereren in zijn eigen universum: lange lagen, extreme schouders, monochrome looks en bijna architectonische vormen. Wat ooit puur avant-garde was, sijpelt nu langzaam door naar de mainstream.
 
-Je ziet het al gebeuren: lange coats, oversized tops en dramatische proporties verschijnen steeds vaker in high street collecties. Stage outfits worden dagelijkse inspiratie. Die invloed zie je ook terug in de [streetwear trends van 2026](/features/streetwear-trends-2026).
+Je ziet het al gebeuren: lange coats, oversized tops en dramatische proporties verschijnen steeds vaker in high street collecties. Stage outfits worden dagelijkse inspiratie. Die invloed zie je ook terug in de [streetwear trends van 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl).
 
 ![pfw26 lv](/uploads/pfw26_lv.png)
 

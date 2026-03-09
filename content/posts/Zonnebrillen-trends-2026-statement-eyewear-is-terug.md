@@ -102,7 +102,7 @@ naar:
 
 *past dit bij mij?*
 
-En misschien is een zonnebril wel de snelste manier om dat te beantwoorden. Zodra de zon verschijnt verdwijnen de lagen en wat overblijft is persoonlijke stijl. Op zoek naar meer accessoire-inspiratie voor dit seizoen? Bekijk ook de [streetwear trends van 2026](/features/streetwear-trends-2026) en de [highlights van Paris Fashion Week 2026](/features/paris-fashion-week-2026-highlights-celebrities-trends).
+En misschien is een zonnebril wel de snelste manier om dat te beantwoorden. Zodra de zon verschijnt verdwijnen de lagen en wat overblijft is persoonlijke stijl. Op zoek naar meer accessoire-inspiratie voor dit seizoen? Bekijk ook de [streetwear trends van 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl) en de [highlights van Paris Fashion Week 2026](/features/paris-fashion-week-2026-highlights-celebrities-trends).
 
 ## Veelgestelde vragen over zonnebrillen trends 2026
 

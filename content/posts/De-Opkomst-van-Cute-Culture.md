@@ -48,7 +48,7 @@ Ook de schattige Sonny Angels, kleine verzamelfiguurtjes met hun herkenbare enge
 
 Kortom, cuteness is meer dan een trend. Het is een cultureel wapen en een esthetische revolutie die ons uitdaagt opnieuw te kijken naar wat mooi, sterk en betekenisvol is. Of het nu in een kunstwerk, een [sneaker](/features/sneaker-trends-2026) of een TikTok-filter zit.
 
-CUTE is nog te zien tot 13 oktober 2025 in de Kunsthal Rotterdam. Benieuwd hoe streetwear en schattigheid samenkomen? Lees ook over [streetwear trends in 2026](/features/streetwear-trends-2026).
+CUTE is nog te zien tot 13 oktober 2025 in de Kunsthal Rotterdam. Benieuwd hoe streetwear en schattigheid samenkomen? Lees ook over [streetwear trends in 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl).
 
 ## Veelgestelde vragen over cute culture
 

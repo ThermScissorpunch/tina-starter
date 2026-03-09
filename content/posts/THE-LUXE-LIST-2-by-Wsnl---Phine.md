@@ -10,11 +10,23 @@ excerpt: >
   omdat je weet dat iemand er écht iets aan heeft.
 author: content/authors/wsnl.md
 date: 2025-12-09T23:00:00.000Z
+description: >-
+  We zijn terug met deel twee van The Luxe List: onze holiday giftguide waarin
+  teamleden hun meest geliefde designerpicks delen. Geen standaard cadeaus, maar
+lastUpdated: 2026-03-09T00:00:00.000Z
 ---
+
+> **TL;DR:**
+> - In deel twee van The Luxe List deelt Phine haar vijf favoriete designercadeaus
+> - Haar stijl is verfijnd en minimalistisch, met items die even praktisch als prachtig zijn
+> - Van een Miu Miu portemonnee tot een Louis Vuitton toilettas: luxe voor dagelijks gebruik
+> - Bekijk ook de andere edities van [The Luxe List](/features/the-luxe-list-1-by-wsnl-abigail)
+
+## De favorieten van Phine
 
 Deze keer duiken we in de favorieten van Phine. Haar stijl is verfijnd, minimalistisch en altijd on point. Ze kiest voor items die even praktisch als prachtig zijn, en die nét dat beetje extra geven aan elke outfit. Dit zijn haar five-star gifting essentials van dit seizoen:
 
-![](/uploads/Gg_phine.png)
+![Gg phine](/uploads/Gg_phine.png)
 
 **1. Miu Miu - bordeaux wallet**
 
@@ -39,7 +51,22 @@ Ik ben dol op deze [Jacquemus-pet](https://www.winkelstraat.nl/designers/jacquem
 
 Ik kies graag voor de [Louis Vuitton toilettas ](https://www.winkelstraat.nl/designers/louis-vuitton/monogram-nice-mini-vanity-case-bruin-7a7b32a8-f711-46f0-8d7b-4a497f65d248.html)omdat hij gewoon pure luxe uitstraalt. Het is zo’n praktisch én elegant cadeau dat iemand zowel thuis als op reis kan gebruiken. Tijdloos, mooi afgewerkt en echt iets dat jarenlang meegaat. Functionele luxe op zijn best: compact, iconisch en volledig onmisbaar.
 
-Dit was The Luxe List #2.
-In de komende edities delen nog meer teamleden hun persoonlijke wishlist: unexpected gems, luxe basics, en designer must-haves waar je holiday shopping gegarandeerd beter van wordt.
+## Wat volgt er nog in de serie?
+
+Dit was The Luxe List #2. In de komende edities delen nog meer teamleden hun persoonlijke wishlist: unexpected gems, luxe basics, en designer must-haves waar je holiday shopping gegarandeerd beter van wordt. Bekijk ook [The Luxe List van Sanne](/features/the-luxe-list-3-by-wsnl-sanne) of [The Luxe List van Justin](/features/the-luxe-list-4-by-wsnl-justin).
 
 Stay tuned for The Luxe List #3.
+
+## Veelgestelde vragen over The Luxe List #2
+
+### Hoe zou je de stijl van Phine omschrijven?
+
+Phine's stijl is verfijnd, minimalistisch en altijd on point. Ze kiest bewust voor items die praktisch en prachtig tegelijk zijn. Denk aan tijdloze designer pieces die subtiel luxe uitstralen zonder overdreven te zijn. Haar selectie weerspiegelt iemand die kwaliteit boven kwantiteit verkiest.
+
+### Wat zijn de highlights uit Phine's Luxe List?
+
+De opvallendste picks zijn de bordeaux Miu Miu portemonnee als elegant dagelijks accessoire en het oversized leren jacket van Acne Studios als ultiem statement piece. Daarnaast valt de Louis Vuitton Nice Mini toilettas op als functioneel luxe cadeau dat jarenlang meegaat.
+
+### Kan ik de items uit The Luxe List ook als cadeau laten versturen?
+
+Alle items zijn verkrijgbaar via Winkelstraat.nl en kunnen direct besteld worden. Bij elk item vind je een link naar de productpagina. Voor meer cadeau-inspiratie kun je ook de andere edities van The Luxe List bekijken, zoals die van [Abigail](/features/the-luxe-list-1-by-wsnl-abigail).

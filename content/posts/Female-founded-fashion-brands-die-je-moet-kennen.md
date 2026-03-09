@@ -3,19 +3,33 @@ category: Blogs
 title: Female-founded fashion brands die je moet kennen
 slug: female-founded-fashion-brands
 heroImg: /uploads/grace-wales-bonner-hero.png
-excerpt: |
-  Deze female-founded fashion brands bepalen de toekomst van mode. Ontdek designers zoals Toteme, Khaite, Marine Serre en Wales Bonner.
+excerpt: >
+  Deze female-founded fashion brands bepalen de toekomst van mode. Ontdek
+  designers zoals Toteme, Khaite, Marine Serre en Wales Bonner.
 author: content/authors/Luna.md
 date: 2026-03-07T01:00:00.000Z
+description: >-
+  Deze female-founded fashion brands bepalen de toekomst van mode. Ontdek
+  designers zoals Toteme, Khaite, Marine Serre en Wales Bonner.
+lastUpdated: 2026-03-09T00:00:00.000Z
 ---
 
 Internationale Vrouwendag is hét moment om stil te staan bij de vrouwen die industrieën vormgeven, en de modewereld is daarop geen uitzondering. Van minimalistische Scandinavische labels tot experimentele designers en luxe modehuizen: vrouwelijke founders spelen een steeds grotere rol in het bepalen van hoe moderne fashion eruitziet.
 
+> **TL;DR:**
+> - Female-founded brands als Marine Serre, Toteme, Khaite en The Row bepalen de toekomst van mode
+> - Van duurzame innovatie tot quiet luxury: vrouwelijke designers brengen unieke perspectieven
+> - Wales Bonner combineert Europese luxe met Afro-Atlantische invloeden op een baanbrekende manier
+> - Amina Muaddi bouwde in korte tijd een van de meest herkenbare schoenenmerken ter wereld
+> - Nanushka zet de standaard voor vegan leather en bewust minimalisme
+
 Steeds meer vrouwen bouwen merken met een sterke visie, herkenbare esthetiek en een duidelijke culturele impact. Of het nu gaat om vernieuwende streetwear, modern luxury of tijdloze essentials: deze ontwerpers brengen elk iets unieks naar de mode-industrie.
+
+Lees ook [waarom vrouwelijke designers zo belangrijk zijn voor de toekomst van fashion](/features/vrouwelijke-designers-toekomst-fashion) voor meer context over de impact van vrouwen in de mode-industrie.
 
 Bij Winkelstraat zijn we trots dat we verschillende van deze vrouwelijke designers en hun merken mogen aanbieden. Hieronder lichten we een aantal female-founded fashion brands uit die momenteel de modewereld vormgeven en waarvan je de collecties ook bij ons kunt ontdekken.
 
-![](/uploads/marine-serre-designer.png)
+![marine serre designer](/uploads/marine-serre-designer.png)
 
 Foto: TheBusinessOfFashion
 
@@ -27,7 +41,7 @@ Serre staat bekend om haar iconische crescent moon-print, die inmiddels een herk
 
 [Shop Marine Serre ](https://www.winkelstraat.nl/designers/marine-serre)
 
-![](/uploads/Elin-kling-toteme-founder.png)
+![Elin kling toteme founder](/uploads/Elin-kling-toteme-founder.png)
 
 Foto: BritishVogue
 
@@ -41,7 +55,7 @@ Toteme belichaamt de kracht van Scandinavische luxe minimalisme.
 
 [Ontdek Toteme](https://www.winkelstraat.nl/designers/toteme)
 
-![](/uploads/khaite-designer.png)
+![khaite designer](/uploads/khaite-designer.png)
 
 Foto: TheBusinessOfFashion
 
@@ -55,7 +69,7 @@ Vandaag de dag is Khaite een vaste waarde onder editors, stylists en modeliefheb
 
 [Shop Khaite ](https://www.winkelstraat.nl/designers/khaite)
 
-![](/uploads/wales-bonner-designer.png)
+![wales bonner designer](/uploads/wales-bonner-designer.png)
 
 Foto: MarieClaire
 
@@ -69,7 +83,7 @@ Het merk beweegt zich moeiteloos tussen luxury fashion en hedendaagse cultuur.
 
 [Ontdek Wales Bonner ](https://www.winkelstraat.nl/designers/wales-bonner)
 
-![](/uploads/amina-muaddi-designer.png)
+![amina muaddi designer](/uploads/amina-muaddi-designer.png)
 
 Foto: HarpersBazaar
 
@@ -83,7 +97,7 @@ Het merk groeide in korte tijd uit tot een belangrijke speler binnen de luxury f
 
 [Shop Amina Muaddi](https://www.winkelstraat.nl/designers/amina-muaddi)
 
-![](/uploads/The-row-designers.png)
+![The row designers](/uploads/The-row-designers.png)
 
 Foto: Bloomberg
 
@@ -95,7 +109,7 @@ Het label staat bekend om zijn minimalistische esthetiek, uitzonderlijke materia
 
 [Ontdek The Row](https://www.winkelstraat.nl/designers/the-row)
 
-![](/uploads/feng-chen-wang-designer.png)
+![feng chen wang designer](/uploads/feng-chen-wang-designer.png)
 
 Foto: TatlerAsia
 
@@ -107,7 +121,7 @@ Haar collecties spelen met deconstructie, technische materialen en culturele ref
 
 [Shop Feng Chen Wang](https://www.winkelstraat.nl/designers/feng-chen-wang)
 
-![](/uploads/nanuschka-designer.png)
+![nanuschka designer](/uploads/nanuschka-designer.png)
 
 foto: Bymarie
 
@@ -126,3 +140,23 @@ Van innovatieve designers tot gevestigde luxury labels: vrouwelijke founders bli
 Merken zoals Marine Serre, Toteme, Khaite, Wales Bonner, Amina Muaddi, The Row, Feng Chen Wang en Nanushka laten zien hoe creativiteit, visie en vakmanschap samenkomen in moderne fashion.
 
 Ontdek de collecties van deze female-founded designer brands nu bij Winkelstraat.nl
+
+Benieuwd naar de nieuwste [accessoiretrends van fashion icons](/features/5keeraccessoiresvanfashionicons)? Veel van deze vrouwelijke designers zetten ook daar de toon.
+
+## Veelgestelde vragen over female-founded fashion brands
+
+### Welke female-founded fashion brands zijn het meest invloedrijk?
+
+Merken als The Row, Khaite, Marine Serre en Wales Bonner behoren tot de meest invloedrijke female-founded labels van dit moment. Elk merk brengt een uniek perspectief: van quiet luxury en moderne tailoring tot duurzame innovatie en culturele referenties die de modewereld blijvend veranderen.
+
+### Waarom zijn vrouwelijke designers belangrijk voor de mode-industrie?
+
+Vrouwelijke designers ontwerpen vaak vanuit persoonlijke ervaring met kleding, lichaam en beweging. Dat levert ontwerpen op die zowel esthetisch als functioneel zijn. Ze brengen nieuwe perspectieven die de industrie diverser en innovatiever maken, van Coco Chanel tot de hedendaagse generatie ontwerpers.
+
+### Waar kan ik female-founded fashion brands shoppen?
+
+Veel female-founded merken zoals Marine Serre, Toteme, Khaite, Wales Bonner, Amina Muaddi, The Row, Feng Chen Wang en Nanushka zijn verkrijgbaar via luxe retailers en online platforms. Hun collecties zijn ook te vinden bij geselecteerde multibrand stores.
+
+### Wat is quiet luxury en welke vrouwelijke designers passen daarin?
+
+Quiet luxury draait om tijdloze ontwerpen, uitzonderlijke materialen en subtiele elegantie zonder opvallende logo's. The Row van Mary-Kate en Ashley Olsen is hét voorbeeld van deze beweging. Ook Toteme en Khaite passen perfect in de quiet luxury esthetiek met hun verfijnde, minimalistische aanpak.

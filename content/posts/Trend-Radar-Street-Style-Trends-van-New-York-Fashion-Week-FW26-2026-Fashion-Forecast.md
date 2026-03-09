@@ -1,13 +1,29 @@
 ---
 category: Blogs
-title: 'Trend Radar: Street Style Trends van New York Fashion Week FW26 (2026 Fashion Forecast)'
+title: >-
+  Trend Radar: Street Style Trends van New York Fashion Week FW26 (2026 Fashion
+  Forecast)
 slug: nyfw-street-style-trends-2026
 heroImg: /uploads/wisdom-kaye-julia-fox-nyfw.png
-excerpt: |
-  Onze Trend Radar van New York Fashion Week FW26: dit zijn de fashion en streetwear trends die 2026 gaan bepalen van grungecore en statement outerwear tot sharp-toe boots en rode accenten.
+excerpt: >
+  Onze Trend Radar van New York Fashion Week FW26: dit zijn de fashion en
+  streetwear trends die 2026 gaan bepalen van grungecore en statement outerwear
+  tot sharp-toe boots en rode accenten.
 author: content/authors/Luna.md
 date: 2026-02-18T00:00:00.000Z
+description: >-
+  Onze Trend Radar van New York Fashion Week FW26: dit zijn de fashion en
+  streetwear trends die 2026 gaan bepalen van grungecore en statement outerwear
+  tot
+lastUpdated: 2026-03-09T00:00:00.000Z
 ---
+
+> **TL;DR:**
+> - NYFW FW26 draaide niet om spectaculaire silhouetten maar om subtiele stylingkeuzes
+> - Rode accenten, statement outerwear en sharp-toe boots waren de meest opvallende trends
+> - All-black styling keert terug maar dan opgebouwd met textuurcontrast
+> - Grungecore maakt een comeback als bewust gestylede imperfectie
+> - De trends vragen niet om een nieuwe garderobe, maar om een andere blik op wat je al hebt
 
 Er zijn fashion weeks waar shows het gesprek bepalen.
 
@@ -15,11 +31,11 @@ En er zijn fashion weeks waar je vooral gaat kijken.
 
 New York hoort bij die tweede categorie. Niet omdat er minder gebeurt, maar omdat de veranderingen subtieler zijn. Tijdens NYFW FW26 zaten de signalen niet in spectaculaire silhouettes of virale momenten, maar in kleine stylingkeuzes die steeds opnieuw opdoken.
 
-Geen grote reset van de garderobe, wel een verschuiving in houding. Kleding werd minder “af” gestyled en meer samengesteld. Niet één duidelijke aesthetic, maar combinaties, contrast en intentie.
+Geen grote reset van de garderobe, wel een verschuiving in houding. Kleding werd minder "af" gestyled en meer samengesteld. Niet één duidelijke aesthetic, maar combinaties, contrast en intentie.
 
-Dit zijn de trends die daardoor op onze radar kwamen.
+Dit zijn de trends die daardoor op onze radar kwamen. Benieuwd hoe deze trends zich voortzetten op de catwalk? Bekijk dan ook de [Paris Fashion Week 2026 highlights](/features/paris-fashion-week-2026-highlights-celebrities-trends).
 
-![](/uploads/public-school-nyfw.png)
+![public school nyfw](/uploads/public-school-nyfw.png)
 
 Foto: Public School NY/ AWGE
 
@@ -31,7 +47,7 @@ Geen dominante kleur, maar een gericht accent. Het fungeerde als visueel focuspu
 
 Het lijkt een reactie op maximalisme: minder opvallend, maar niet minder doordacht.
 
-![](/uploads/calvin-klein-nyfw.png)
+![calvin klein nyfw](/uploads/calvin-klein-nyfw.png)
 
 Foto: Calvin Klein
 
@@ -39,15 +55,15 @@ Foto: Calvin Klein
 
 Opvallend vaak leek de outfit te beginnen bij de jas. Outerwear bepaalde het silhouet en de proporties, terwijl de rest van de look relatief eenvoudig bleef.
 
-Grote volumes, texturen en duidelijke vormen kregen voorrang op detail. De jas werd daarmee geen laag bovenop een outfit, maar het uitgangspunt ervan.
+Grote volumes, texturen en duidelijke vormen kregen voorrang op detail. De jas werd daarmee geen laag bovenop een outfit, maar het uitgangspunt ervan. Die trend zagen we ook terug bij de [streetwear trends van 2026](/features/streetwear-trends-2026).
 
 ## Sharp-Toe Footwear
 
 Onderaan het silhouet veranderde ook iets. Schoenen werden scherper.
 
-Puntige boots en schoenen verschenen onder wijde broeken en relaxed tailoring. Waar sneakers jarenlang outfits verzachtten, brachten deze juist richting. Niet per se formeler, maar preciezer.
+Puntige boots en schoenen verschenen onder wijde broeken en relaxed tailoring. Waar sneakers jarenlang outfits verzachtten, brachten deze juist richting. Niet per se formeler, maar preciezer. Meer over de verschuiving in schoenen lees je in onze [sneaker trends 2026](/features/sneaker-trends-2026).
 
-![](/uploads/scarf-nyfw.png)
+![scarf nyfw](/uploads/scarf-nyfw.png)
 
 ## The Styled Scarf
 
@@ -55,7 +71,7 @@ Sjaals werden niet functioneel gedragen, maar geplaatst. Over een schouder, half
 
 Ze werkten als visueel element binnen het silhouet — een lijn die beweging toevoegt. Daarmee keert layering terug als stylingtechniek in plaats van praktische noodzaak.
 
-![](/uploads/khaite-nyfw.png)
+![khaite nyfw](/uploads/khaite-nyfw.png)
 
 Foto: Coach/Khaite
 
@@ -65,7 +81,7 @@ Zwart bleef aanwezig, maar veranderde van minimal naar opgebouwd. Verschillende 
 
 De look draaide minder om eenvoud en meer om compositie.
 
-![](/uploads/grunge-nyfw.png)
+![grunge nyfw](/uploads/grunge-nyfw.png)
 
 Foto: Jane Wade / Coach
 
@@ -75,8 +91,26 @@ Tot slot: een duidelijke culturele referentie. Grunge-elementen verschenen opnie
 
 Gedragen denim, oversized vormen en zware boots werden gecombineerd in gecontroleerde looks. Imperfectie leek bewust ingezet, eerder styling dan rebellie.
 
-## Wat dit betekent
+## Wat betekenen deze NYFW trends voor jouw garderobe?
 
 NYFW FW26 liet geen nieuwe garderobe zien en probeerde dat ook niet. Wat wel zichtbaar werd, is een verschuiving naar hoe kleding wordt samengesteld.
 
-De trends draaien minder om specifieke items en meer om keuzes: combineren, laagjes en contrast. Misschien is dat ook waarom ze opvallen — ze vragen niet om een compleet nieuwe kast, maar om een andere blik op wat je al hebt. 
+De trends draaien minder om specifieke items en meer om keuzes: combineren, laagjes en contrast. Misschien is dat ook waarom ze opvallen — ze vragen niet om een compleet nieuwe kast, maar om een andere blik op wat je al hebt.
+
+## Veelgestelde vragen over NYFW street style trends 2026
+
+### Wat was de opvallendste street style trend tijdens NYFW FW26?
+
+Statement outerwear was de meest zichtbare trend. De jas bepaalde het hele silhouet, terwijl de rest van de outfit bewust eenvoudig bleef. Grote volumes, opvallende texturen en duidelijke vormen namen de hoofdrol. De jas werd niet langer een laag bovenop een outfit, maar het startpunt ervan.
+
+### Is de grunge trend terug in 2026?
+
+Ja, maar anders dan verwacht. Grungecore verscheen niet als nostalgische verwijzing, maar als bewust gestylede imperfectie. Gedragen denim, oversized vormen en zware boots werden gecombineerd in gecontroleerde looks. Het verschil met de originele grunge: alles is doordacht samengesteld in plaats van toevallig bij elkaar geraapt.
+
+### Welke kleuren domineerden de street style tijdens NYFW?
+
+De basis bleef rustig met zwart, grijs en navy. Het verschil zat in gerichte rode accenten die als visueel focuspunt fungeerden binnen het silhouet. All-black styling keerde ook terug, maar dan opgebouwd met textuurcontrast — wol, denim, leer en knit in dezelfde kleur voor een meer gelaagd effect.
+
+### Zijn sneakers nog steeds de dominante schoenkeuze in street style?
+
+De verschuiving naar sharp-toe footwear was opvallend. Puntige boots en schoenen verschenen onder wijde broeken en relaxed tailoring. Ze brachten precisie waar sneakers jarenlang outfits verzachtten. Niet per se formeler, maar scherper en doelbewuster — een duidelijk signaal dat het silhouet aan het veranderen is.

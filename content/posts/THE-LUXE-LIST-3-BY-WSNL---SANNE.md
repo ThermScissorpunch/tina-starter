@@ -11,11 +11,24 @@ excerpt: >
   zijn: draagbaar, stijlvol en instant favourites.
 author: content/authors/wsnl.md
 date: 2025-12-10T23:00:00.000Z
+description: >-
+  Voor deel drie van The Luxe List schuiven we door naar Sanne, iemand die
+  precies weet hoe je praktische cadeaus net dat beetje extra geeft. Haar
+  wishlist
+lastUpdated: 2026-03-09T00:00:00.000Z
 ---
+
+> **TL;DR:**
+> - In deel drie van The Luxe List deelt Sanne haar vijf favoriete wintercadeaus
+> - Haar picks draaien om comfort, luxe basics en kleine verrassingen die elke winterfit beter maken
+> - Van Off-White sokken tot UGG Ultra Mini’s: draagbare cadeaus die altijd goed zijn
+> - Bekijk ook de andere edities van [The Luxe List](/features/the-luxe-list-1-by-wsnl-abigail)
+
+## Sanne’s must-haves van dit seizoen
 
 Hier zijn Sanne’s must-haves van dit seizoen:
 
-![](/uploads/Giftguide_sanne_items.png)
+![Giftguide sanne items](/uploads/Giftguide_sanne_items.png)
 
 **1. OFF-WHITE - Logo Sokken**
 
@@ -38,7 +51,22 @@ Voor de allereerste kerst van de kleine is er niets schattigers dan dit klassiek
 
 Last but not least: de [UGG Ultra Mini,](https://www.winkelstraat.nl/designers/ugg/classic-ultra-mini-chestnut-beige-fb5130a1-052c-4b13-8c35-142dc1a57240.html) want laten we eerlijk zijn, geen wintergarderobe is compleet zonder deze ultieme klassieker. Ze zijn niet alleen ongekend populair en mega-comfy, maar geven je outfit ook direct die relaxte, stijlvolle vibe waar we allemaal naar zoeken. Het perfecte cadeau voor onder de boom om de koude dagen fashionable door te komen. De winterklassieker die élke generatie blijft claimen.
 
-Met The Luxe List #3 laten we zien dat goede cadeaus niet ingewikkeld hoeven te zijn, als ze maar goed gekozen zijn.
-Volgende week is het tijd voor een nieuw teamlid, nieuwe stijl en een compleet nieuwe selectie aan holiday must-haves.
+## Goede cadeaus hoeven niet ingewikkeld te zijn
+
+Met The Luxe List #3 laten we zien dat goede cadeaus niet ingewikkeld hoeven te zijn, als ze maar goed gekozen zijn. Volgende week is het tijd voor een nieuw teamlid, nieuwe stijl en een compleet nieuwe selectie aan holiday must-haves. Bekijk ondertussen ook [The Luxe List van Abigail](/features/the-luxe-list-1-by-wsnl-abigail) of [The Luxe List van Justin](/features/the-luxe-list-4-by-wsnl-justin).
 
 Stay tuned for The Luxe List #4.
+
+## Veelgestelde vragen over The Luxe List #3
+
+### Hoe zou je Sanne's cadeaustijl omschrijven?
+
+Sanne kiest voor praktische cadeaus met net dat beetje extra. Haar selectie draait om comfort, luxe basics en kleine verrassingen die je wintergarderobe verbeteren. Het zijn items die je geeft omdat ze altijd goed zijn: draagbaar, stijlvol en instant favourites voor iedereen.
+
+### Zijn de items uit Sanne's lijst betaalbaar?
+
+Sanne's selectie varieert van toegankelijke items zoals Off-White sokken en een My Jewellery adventkalender tot luxere picks zoals UGG boots en een Canada Goose beanie. Er zit voor elk budget iets bij. Alle items zijn direct te bestellen via Winkelstraat.nl.
+
+### Voor wie is The Luxe List #3 het meest geschikt?
+
+Deze editie is perfect voor iemand die op zoek is naar draagbare, stijlvolle cadeaus die niet overdreven hoeven te zijn. Van baby-items tot streetwear essentials: Sanne's lijst biedt voor jong en oud iets passends. Bekijk ook de picks van [Phine](/features/the-luxe-list-2-by-wsnl-phine) voor een meer minimalistische stijl.

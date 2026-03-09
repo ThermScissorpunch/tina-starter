@@ -62,6 +62,25 @@ const Post: Collection = {
       name: "excerpt",
     },
     {
+      type: "string",
+      label: "Meta Description",
+      name: "description",
+      description: "SEO meta description (150-160 characters). Used for search engine results and social sharing.",
+      ui: {
+        component: "textarea",
+      },
+    },
+    {
+      type: "datetime",
+      label: "Last Updated",
+      name: "lastUpdated",
+      description: "When this post was last updated. Used for freshness signals and schema markup.",
+      ui: {
+        dateFormat: "MMMM DD YYYY",
+        timeFormat: "hh:mm A",
+      },
+    },
+    {
       type: "reference",
       label: "Author",
       name: "author",

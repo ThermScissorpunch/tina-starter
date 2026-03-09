@@ -11,13 +11,30 @@ excerpt: >
   plezier.
 author: content/authors/wsnl.md
 date: 2025-12-07T23:00:00.000Z
+description: >-
+  De feestdagen komen eraan, en laten we eerlijk zijn: cadeaus geven is een
+  kunst. Niet die “last-minute-kaarsen-in-een-mandje”-energie, maar cadeaus die
+  laten
+lastUpdated: 2026-03-09T00:00:00.000Z
 ---
 
-Dit jaar presenteren we The Luxe List: een serie cadeau-aanbevelingen samengesteld door ons team. Een lijst van items die volgens hen het perfecte designer cadeau vormen. We trappen onze giftguide-serie af met de winter favourites van Abigail. Iemand die precies weet hoe je comfort, edge en tijdloze luxe combineert. Haar wishlist is een mix van essentials en statement items die niet alleen mooi zijn om te geven, maar minstens zo leuk om te krijgen.
+> **TL;DR:**
+> - The Luxe List is een giftguide-serie waarin WSNL-teamleden hun favoriete designercadeaus delen
+> - Abigail trapt af met vijf picks die comfort, edge en tijdloze luxe combineren
+> - Van de Saint Blanc hoodie tot de Gucci Abbey bag: items die mooi zijn om te geven en te krijgen
+> - Perfecte cadeautips voor de feestdagen met een mix van essentials en statement pieces
+
+## Wat is The Luxe List?
+
+Dit jaar presenteren we The Luxe List: een serie cadeau-aanbevelingen samengesteld door ons team. Een lijst van items die volgens hen het perfecte designer cadeau vormen. Benieuwd naar de andere edities? Bekijk ook [The Luxe List van Phine](/features/the-luxe-list-2-by-wsnl-phine) of [The Luxe List van Sanne](/features/the-luxe-list-3-by-wsnl-sanne).
+
+## De winter favourites van Abigail
+
+We trappen onze giftguide-serie af met de winter favourites van Abigail. Iemand die precies weet hoe je comfort, edge en tijdloze luxe combineert. Haar wishlist is een mix van essentials en statement items die niet alleen mooi zijn om te geven, maar minstens zo leuk om te krijgen.
 
 Hier zijn haar must-haves voor deze winter:
 
-![](/uploads/gg4.png) 
+![gg4](/uploads/gg4.png) 
 
 **1. Saint Blanc - International hoodie ''blueberry''**
 
@@ -39,6 +56,22 @@ Dit is een winter essential. De kleur is mooi en de [hoodie](https://www.winkels
 
 [Deze crewneck](https://www.winkelstraat.nl/designers/fear-of-god/fear-of-god-essentials-heavy-fleece-crewneck--amber--divers-af5fec2e-d7ce-4041-9a02-a1445fc708c5.html) vind ik supertof. De kleur is rustig en tijdloos waardoor je hem veel kunt combineren. Daarnaast vind ik de fit mooi. Kortom, een item dat je vaak zal dragen en altijd goed staat. Een cozy basic, maar met die minimal luxe vibe waar Fear of God om bekendstaat. Warm, zacht, clean — en precies het soort hoodie dat in elke winter-wardrobe thuishoort.
 
-Dit was The Luxe List #1. De komende weken delen onze teamleden hun persoonlijke picks: unexpected favourites, niche flexes, en misschien zelfs een paar pieces waarvan je niet eens wist dat je ze wilde hebben.
+## Wat komt er nog meer in The Luxe List?
+
+Dit was The Luxe List #1. De komende weken delen onze teamleden hun persoonlijke picks: unexpected favourites, niche flexes, en misschien zelfs een paar pieces waarvan je niet eens wist dat je ze wilde hebben. Bekijk ook de [Luxe List van Justin](/features/the-luxe-list-4-by-wsnl-justin) voor een heel andere stijl.
 
 Stay tuned.
+
+## Veelgestelde vragen over The Luxe List #1
+
+### Wat is The Luxe List van Winkelstraat.nl?
+
+The Luxe List is een giftguide-serie waarin teamleden van Winkelstraat.nl hun persoonlijke favoriete designercadeaus delen. Elke editie biedt een unieke selectie items die luxe uitstralen zonder overdreven te zijn. Het zijn cadeaus die iemand echt gaat gebruiken, dagelijks en jarenlang.
+
+### Voor wie zijn de cadeautips van Abigail geschikt?
+
+Abigails selectie is ideaal voor iemand die van comfort, edge en tijdloze luxe houdt. De items variëren van een cozy Saint Blanc hoodie tot iconische Maison Margiela Tabi's en een vintage Gucci tas. Er zit voor elk budget en elke stijl iets passends tussen.
+
+### Waar kan ik de items uit The Luxe List kopen?
+
+Alle items uit de lijst zijn verkrijgbaar via Winkelstraat.nl. Bij elk item in het artikel vind je een directe link naar de productpagina. Van sneakers en tassen tot hoodies en schoenen: alles is direct te bestellen met een paar klikken.

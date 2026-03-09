@@ -3,15 +3,27 @@ category: Blogs
 title: 'Sneaker Trends 2026: 5 nieuwe sneakers die je dit seizoen overal gaat zien'
 slug: sneaker-trends-2026
 heroImg: /uploads/sneaker-trends-hero.png
-excerpt: |
-  De sneaker van 2026 ziet er compleet anders uit. Minder chunky, meer slank. Dit zijn de 5 sneaker trends die het straatbeeld dit seizoen gaan bepalen.
+excerpt: >
+  De sneaker van 2026 ziet er compleet anders uit. Minder chunky, meer slank.
+  Dit zijn de 5 sneaker trends die het straatbeeld dit seizoen gaan bepalen.
 author: content/authors/Luna.md
 date: 2026-02-11T00:00:00.000Z
+description: >-
+  De sneaker van 2026 ziet er compleet anders uit. Minder chunky, meer slank.
+  Dit zijn de 5 sneaker trends die het straatbeeld dit seizoen gaan bepalen.
+lastUpdated: 2026-03-09T00:00:00.000Z
 ---
 
-De winter loopt op z’n einde en dat betekent in fashion meestal één ding: rotations veranderen.
+De winter loopt op z’n einde en dat betekent in fashion meestal een ding: rotations veranderen.
 
-Sneakers zijn vaak de eerste indicator van een nieuw seizoen. Nog voordat collecties in winkels hangen of campagnes online staan, zie je het al op straat. En dit jaar valt vooral één ontwikkeling op: de chunky sneaker verdwijnt langzaam uit het straatbeeld.
+> **TL;DR:**
+> - De chunky sneaker maakt plaats voor slankere, lagere silhouetten in 2026
+> - Retro runners geinspireerd op 70s en 80s hardloopschoenen zijn de natuurlijke opvolger van de Samba-periode
+> - Suede in zachte tinten als ecru, beige en washed brown vervangt het clean witte leer
+> - Technical sneakers en gorpcore blijven groeien als functionele fashion
+> - Archive classics worden niet anders, maar wel anders gestyled: wide trousers in plaats van skinny jeans
+
+Sneakers zijn vaak de eerste indicator van een nieuw seizoen. Nog voordat collecties in winkels hangen of campagnes online staan, zie je het al op straat. En dit jaar valt vooral een ontwikkeling op: de chunky sneaker verdwijnt langzaam uit het straatbeeld.
 
 Jarenlang draaide alles om bulky silhouettes. Grote zolen, zware paneling en dad sneakers bepaalden het modebeeld sinds ongeveer 2017. Ze werkten perfect bij skinny jeans en strakke fits. Maar mode beweegt in cycli. Nu broeken wijder worden en tailoring losser valt, klopt dat type sneaker simpelweg minder goed onder een outfit.
 
@@ -33,11 +45,11 @@ Wat begon met terrace sneakers ontwikkelt zich nu naar nog minimalere modellen. 
 
 Bekijk ook onze selectie low profile sneakers die perfect werken onder wide denim en tailored trousers.
 
-![](/uploads/adidas-taekwondo-sneaker.png)
+![adidas taekwondo sneaker](/uploads/adidas-taekwondo-sneaker.png)
 
-![](/uploads/adidas-tokyo.png)
+![adidas tokyo](/uploads/adidas-tokyo.png)
 
-![](/uploads/puma-speedcat.png)
+![puma speedcat](/uploads/puma-speedcat.png)
 
 ## 2. Retro runners
 
@@ -49,9 +61,9 @@ Het verschil met eerdere retrotrends: dit keer wordt het bewust gestyled. Niet i
 
 Shop hier onze retro sneakers geïnspireerd op klassieke running silhouettes.
 
-![](/uploads/nike-cortez-sneaker.png)
+![nike cortez sneaker](/uploads/nike-cortez-sneaker.png)
 
-![](/uploads/adidas-sl72-sneaker-2026.jpg.png)
+![adidas sl72 sneaker 2026.](/uploads/adidas-sl72-sneaker-2026.jpg.png)
 
 ## 3. Suède colorways
 
@@ -63,7 +75,7 @@ Suède past beter bij hoe mensen zich momenteel kleden: denim, hoodies, knitwear
 
 Ontdek onze suède sneakers in lichte kleuren die makkelijk te combineren zijn met dagelijkse outfits.
 
-![](/uploads/new-balance-204L-suede-sneaker-2026.jpg.png)
+![new balance 204L suede sneaker 2026.](/uploads/new-balance-204L-suede-sneaker-2026.jpg.png)
 
 ## 4. Technical sneakers en gorpcore
 
@@ -75,9 +87,9 @@ Waarom deze populair blijft: outfits worden simpeler. Een basic fit met hoodie e
 
 Bekijk onze technical sneakers en trail geïnspireerde modellen voor een meer functionele look.
 
-![](/uploads/salomon-xt6-sneaker-2026.jpg.png)
+![salomon xt6 sneaker 2026.](/uploads/salomon-xt6-sneaker-2026.jpg.png)
 
-![](/uploads/nike-acg-sneaker-2026.jpg.png)
+![nike acg sneaker 2026.](/uploads/nike-acg-sneaker-2026.jpg.png)
 
 ## 5. Archive classics (nieuw gestyled)
 
@@ -89,9 +101,9 @@ Dat is misschien wel de grootste shift van 2026: niet per se nieuwe sneakers, ma
 
 Bekijk ook onze klassieke sneakers en archive modellen die altijd relevant blijven.
 
-![](/uploads/vans-old-skool-2026.jpg.png)
+![vans old skool 2026.](/uploads/vans-old-skool-2026.jpg.png)
 
-![](/uploads/adidas-gazelle-suede-sneaker-2026.jpg.png)
+![adidas gazelle suede sneaker 2026.](/uploads/adidas-gazelle-suede-sneaker-2026.jpg.png)
 
 ## Wat dit zegt over 2026
 
@@ -103,4 +115,22 @@ Minder “kijk mijn schoenen”, meer “kijk mijn fit”.
 
 Daarom verdwijnen chunky silhouettes langzaam en komen slankere modellen terug. Het sluit ook aan bij wat je nu overal hoort: 2026 voelt als een nieuwe versie van 2016, maar cleaner, rustiger en meer gefocust op styling.
 
-Het gaat uiteindelijk niet meer alleen om welke sneaker je draagt, maar hoe je hem draagt.
+Het gaat uiteindelijk niet meer alleen om welke sneaker je draagt, maar hoe je hem draagt. Benieuwd welke sneakers als tijdloos worden beschouwd? Lees ook ons stuk over de [holy grails van sneakerfreaks](/features/de-holy-grails-van-sneaker-freaks). En voor de warme maanden kun je alvast kijken naar de beste [summer sneaker rotation](/features/de-4-sneakers-voor-je-summer-sneaker-rotation).
+
+## Veelgestelde vragen
+
+### Zijn chunky sneakers helemaal uit in 2026?
+
+Niet helemaal, maar ze verschuiven wel naar de achtergrond. De trend beweegt richting slankere, lagere silhouetten die beter passen bij de huidige wijdere broeken en relaxed tailoring. Chunky modellen werken nog steeds, maar voelen minder actueel dan twee jaar geleden.
+
+### Welke sneaker past het best onder een wijde broek?
+
+Een slim silhouet met lage zool werkt het beste onder wide denim of tailored trousers. Denk aan terrace sneakers, retro runners of minimalistische modellen. Ze verlengen het silhouet visueel en brengen rust in een outfit, in plaats van volume toe te voegen onderaan.
+
+### Is suede lastig te onderhouden?
+
+Suede vraagt iets meer zorg dan glad leer, maar het valt mee. Gebruik een impregneerspray voor het eerste gebruik en borstel regelmatig met een suedeborstel. Vlekken behandel je met een speciaal gummetje. Met een beetje aandacht gaan suede sneakers prima lang mee.
+
+### Wat is het verschil tussen retro runners en archive classics?
+
+Retro runners zijn geinspireerd op hardloopschoenen uit de jaren 70 en 80, met nylon panels en lichte materialen. Archive classics zijn eerder skate- of basketbalmodellen die al jaren bestaan, zoals de Vans Old Skool. Het verschil zit vooral in de oorsprong en het silhouet.

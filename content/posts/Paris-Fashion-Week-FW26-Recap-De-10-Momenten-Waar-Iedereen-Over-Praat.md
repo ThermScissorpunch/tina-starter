@@ -2,7 +2,7 @@
 category: Blogs
 title: 'Paris Fashion Week FW26 Recap: De 10 Momenten Waar Iedereen Over Praat'
 slug: pfw-fw26-highlights
-heroImg: /uploads/Hero_Paris_fashion_week_2026.png
+heroImg: /uploads/hero-image-pfw-26.png
 excerpt: |
   Van Balenciaga’s ClairObscur tot paarden op de runway bij Stella McCartney: dit zijn de grootste highlights en trends van Paris Fashion Week FW26.
 author: content/authors/Luna.md

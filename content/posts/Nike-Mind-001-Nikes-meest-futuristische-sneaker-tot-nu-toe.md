@@ -27,9 +27,7 @@ In plaats van snelheid of demping centraal te zetten, richt deze sneaker zich op
 
 ## De technologie achter de Nike Mind 001
 
-![](/uploads/nike-mind-001-bubble-sole.png)
-
-*De zool van de Nike Mind 001 bevat 22 foam nodes die drukpunten onder de voet activeren.*
+![](/uploads/nike-mind-001-bubble-sole.png "De zool van de Nike Mind 001 bevat 22 foam nodes die drukpunten onder de voet activeren.")
 
 Foto: Nike
 

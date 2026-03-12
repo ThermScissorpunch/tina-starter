@@ -2,7 +2,7 @@
 category: New Drops
 title: 'Nike Mind 001: Nike’s meest futuristische sneaker tot nu toe'
 slug: nike-mind-001-review
-heroImg: /uploads/nike-mind-001-sneaker-review.png
+heroImg: /uploads/Hero-image-nike-mind-001.jpeg
 excerpt: |
   De Nike Mind 001 is Nike’s eerste sneaker gebaseerd op neurowetenschap. Met 22 foam nodes in de zool wil het model focus, herstel en welzijn verbeteren.
 author: content/authors/Luna.md

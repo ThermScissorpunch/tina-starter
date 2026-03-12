@@ -39,9 +39,7 @@ Het concept is geïnspireerd op onderzoek naar proprioceptie, het vermogen van h
 
 ## Een futuristisch design dat perfect past bij de slip-on trend
 
-![](/uploads/nike-mind-001-front-view-review.png)
-
-*De Nike Mind 001 combineert een minimalistische mule-vorm met futuristische details.*
+![](/uploads/nike-mind-001-front-view-review.png "De Nike Mind 001 combineert een minimalistische mule-vorm met futuristische details.")
 
 Foto: Nike
 

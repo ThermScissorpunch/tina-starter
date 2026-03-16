@@ -65,9 +65,11 @@ pnpm lint              # ESLint
 
 ## Conventions
 
+- **Never use placeholders** — all content (text, links, slugs, dates, descriptions, image paths) must be real and final. Never output placeholder text like "TODO", "TBD", "[insert here]", "lorem ipsum", or similar. If information is missing, ask for it.
 - Content is in Dutch (nl)
 - Blog posts use markdown with TinaCMS rich-text templates (DateTime, BlockQuote)
 - **Internal links in content must use `/features/{slug}`, not `/posts/{slug}`** — the live site serves all posts under `/features/`
+- **Verify internal links against the live site** — before adding any internal link, check https://www.winkelstraat.nl to confirm the target page exists. Do not assume a URL is valid; fetch it first.
 - Canonical URLs and schema markup use `https://www.winkelstraat.nl/features/{slug}`
 - **No external links** — blog content must never link to external websites. The only exceptions are our own social accounts (Instagram, YouTube, TikTok)
 - Images go in `public/uploads/` and are referenced in frontmatter

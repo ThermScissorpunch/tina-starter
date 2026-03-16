@@ -85,7 +85,7 @@ Glenn Martens wordt aangewezen als nieuwe creative director bij Maison Margiela.
 
 Benieuwd hoe andere modehuizen omgaan met nieuwe creative directors? Lees ook hoe [Dior dankzij Jonathan Anderson eindelijk cool is](/features/hoe-dior-dankzij-jonathan-anderson-eindelijk-wel-cool-is).
 
-[INTERNAL-LINK: Paris Fashion Week 2026 → /posts/paris-fashion-week-2026-highlights-celebrities-trends]
+Lees ook onze [Paris Fashion Week 2026 highlights](/features/paris-fashion-week-2026-highlights-celebrities-trends).
 
 ## Veelgestelde vragen over Glenn Martens en Maison Margiela
 

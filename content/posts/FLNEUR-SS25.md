@@ -35,7 +35,7 @@ De collectie leent zich perfect voor layering. Combineer de statement pieces met
 
 [Shop de collectie hier.](https://www.winkelstraat.nl/designers/flaneur?season=516)
 
-[INTERNAL-LINK: streetwear trends 2026 → /posts/streetwear-trends-2026]
+Lees ook onze [streetwear trends van 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl).
 
 \[products: 1811310,1811278,1811288,1811282]
 

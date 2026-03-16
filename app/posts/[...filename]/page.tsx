@@ -29,7 +29,7 @@ export async function generateMetadata({
       ? post.excerpt
       : post.title);
   const siteUrl = process.env.NEXT_PUBLIC_SITE_URL || "https://www.winkelstraat.nl";
-  const postUrl = `${siteUrl}/posts/${post.slug}`;
+  const postUrl = `${siteUrl}/features/${post.slug}`;
   const imageUrl = post.heroImg
     ? post.heroImg.startsWith("http")
       ? post.heroImg
@@ -91,7 +91,7 @@ export default async function PostPage({
     ...(imageUrl && { image: imageUrl }),
     datePublished: post.date || undefined,
     dateModified: post.lastUpdated || post.date || undefined,
-    url: `${siteUrl}/posts/${post.slug}`,
+    url: `${siteUrl}/features/${post.slug}`,
     publisher: {
       "@type": "Organization",
       name: "Winkelstraat.nl",

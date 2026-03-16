@@ -47,7 +47,7 @@ Dat soort theatraliteit zien we steeds vaker bij Parijse shows. Ook bij [Dior on
 Bekijk de meest opvallende looks hieronder.\
 ![blog2](/uploads/rickowensfw25/blog2.png)![1](</uploads/rickowensfw25/blog 1.png>)![4](</uploads/rickowensfw25/blog 4.png>)![blog3](/uploads/rickowensfw25/blog3.png)![blog6](/uploads/rickowensfw25/blog6.png)
 
-[INTERNAL-LINK: Paris Fashion Week 2026 → /posts/paris-fashion-week-2026-highlights-celebrities-trends]
+Lees ook onze [Paris Fashion Week 2026 highlights](/features/paris-fashion-week-2026-highlights-celebrities-trends).
 
 ## Veelgestelde vragen over Rick Owens FW25
 

@@ -37,7 +37,7 @@ lastUpdated: 2026-03-09T00:00:00.000Z
 
 Voor zijn SS26 show tijdens Paris Fashion Week veranderde Rick Owens het iconische terras van Palais de Tokyo in een soort apocalyptische waterwereld. Geen strake runway of studio. Het werd een fontein, een metalen klimconstructie, en modellen die druipend het water uit klommen. Wij waren erbij namens Winkelstraat, en ja, dit is een show die je niet vergeet.
 
-[INTERNAL-LINK: Paris Fashion Week 2026 highlights → /posts/paris-fashion-week-2026-highlights-celebrities-trends]
+Lees ook onze [Paris Fashion Week 2026 highlights](/features/paris-fashion-week-2026-highlights-celebrities-trends).
 
 ![RO foto1](/uploads/RO_Blog_foto1.png)Foto: @rickowens
 

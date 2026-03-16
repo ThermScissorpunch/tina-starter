@@ -62,7 +62,7 @@ Wat deze collectie echt bijzonder maakte, is dat Jonathan Anderson zichzelf liet
 
 Benieuwd hoe andere grote modehuizen zich heruitvinden? Lees ook hoe de [LV Monogram de cheat code werd voor Gen Z stijl](/features/de-louis-vuitton-monogram-is-de-cheat-code-voor-gen-z-stijl), of wie [Margiela’s nieuwe creative director](/features/margielacd) is en wat dat betekent.
 
-[INTERNAL-LINK: Paris Fashion Week 2026 → /posts/paris-fashion-week-2026-highlights-celebrities-trends]
+Lees ook onze [Paris Fashion Week 2026 highlights](/features/paris-fashion-week-2026-highlights-celebrities-trends).
 
 ## Veelgestelde vragen over Dior en Jonathan Anderson
 

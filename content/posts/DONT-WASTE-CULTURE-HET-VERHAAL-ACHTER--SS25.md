@@ -49,7 +49,7 @@ En zoals we van Don’t Waste Culture gewend zijn, staat kwaliteit voorop. Elk s
 
 De Echoes of purpose collection en meer van Don’t Waste Culture shop je eenvoudig hier online. Mis je kans niet en maak je kast klaar voor de zomer!
 
-[INTERNAL-LINK: streetwear trends 2026 → /posts/streetwear-trends-2026]
+Lees ook onze [streetwear trends van 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl).
 
 \[products: 1863048,8942825505106,8942827864402,9739082989906,1918698,8942836482386,1820970,1918696]
 

@@ -29,7 +29,7 @@ lastUpdated: 2026-03-09T00:00:00.000Z
 
 Iedere drie maanden dropt Lyst een lijst met de “hotste” merken, gebaseerd op wat mensen klikken, zoeken en in hun digitale winkelmandje gooien. Deze keer verslaat Saint Laurent grote namen als Miu Miu, Prada en The Row. Geen TikTok-trends, gewoon strak zwart, scherpe schouders, en die eeuwige vibe van het Parijse femme fatale.
 
-[INTERNAL-LINK: streetwear trends 2026 → /posts/streetwear-trends-2026]
+Lees ook onze [streetwear trends van 2026](/features/streetwear-trends-2026-wat-werkt-nu-echt-in-jouw-stijl).
 
 ## Hoe kan een simpele loafer een merk naar de top brengen?
 
@@ -49,7 +49,7 @@ Het is ook een kleine reality check voor de industrie. De Lyst Index is geen edi
 
 Uiteindelijk zegt deze topnotering niet alleen iets over Saint Laurent, maar over mode zelf. Misschien zijn we klaar met de volgende “core”. Misschien willen we merken die weten wie ze zijn. Met Consistentie en een duidelijke visie.
 
-[INTERNAL-LINK: Paris Fashion Week 2026 highlights → /posts/paris-fashion-week-2026-highlights-celebrities-trends]
+Lees ook onze [Paris Fashion Week 2026 highlights](/features/paris-fashion-week-2026-highlights-celebrities-trends).
 
 ## Veelgestelde vragen over Saint Laurent en de Lyst Index
 

@@ -5,6 +5,7 @@ manufacturerCodes:
 title: The Mansour brengt Dutch luxury naar een hoger niveau
 slug: the-mansour-brengt-dutch-luxury-naar-hoger-niveau
 heroImg: /uploads/hero_mansour.jpg
+productListImg: /uploads/hero_mansour.jpg
 excerpt: |
   Het Nederlandse luxemerk The Mansour is vanaf nu verkrijgbaar op Winkelstraat.nl. En dat is geen toeval. Het platform dat merken als Jacquemus, Ami Paris en Saint Laurent in huis heeft, voegt met Mansour een label toe dat precies aansluit bij wat een nieuwe generatie zoekt: luxe die niet schreeuwt, maar die je voelt zodra je het aantrekt. Opgericht in 2020 door Hosang, vanuit Breda, met een visie die even helder is als compromisloos. Formalwear en streetwear horen bij elkaar.
 author: content/authors/wsnl.md

@@ -20,4 +20,4 @@ En dan is er het verhaal achter de productie. Meer dan negentig procent wordt ge
 
 ![](/uploads/mansour2.jpg)
 
-Ontdek The Mansour nu op Winkelstraat.nl en bekijk de volledige Spring Summer 2026 collectie en de Paris College Collection. Van heavyweight tees tot leren jackets — dit is Dutch luxury zoals het bedoeld is.
+[Ontdek The Mansour](https://www.winkelstraat.nl/designers/mansour) nu op Winkelstraat.nl en bekijk de volledige Spring Summer 2026 collectie en de Paris College Collection. Van heavyweight tees tot leren jackets — dit is Dutch luxury zoals het bedoeld is.

@@ -1,7 +1,7 @@
 ---
 category: Blogs
 title: 'SPRING 2026 ACCESSORIES: DE TRENDS DIE JE LOOK MAKEN'
-slug: /accessoire-trends-lente-2026-mode
+slug: accessoire-trends-lente-2026-mode
 heroImg: /uploads/Zonnebrillen_image.png
 excerpt: |
   Van crossbody bags tot vintage finds: dit zijn de accessoire trends die je fit deze lente echt veranderen.

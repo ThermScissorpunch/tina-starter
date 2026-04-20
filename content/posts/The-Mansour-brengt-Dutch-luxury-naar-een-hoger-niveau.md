@@ -3,7 +3,7 @@ category: New Drops
 manufacturerCodes:
   - MANSOUR
 title: Mansour brengt Dutch luxury naar een hoger niveau
-slug: the-mansour-brengt-dutch-luxury-naar-hoger-niveau
+slug: mansour-brengt-dutch-luxury-naar-hoger-niveau
 heroImg: /uploads/hero_mansour.jpg
 productListImg: /uploads/hero_mansour.jpg
 excerpt: |

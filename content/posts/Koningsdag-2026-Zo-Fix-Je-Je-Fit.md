@@ -49,6 +49,8 @@ brengen niet alleen kleding, maar ook cultuur en community.
 
 Door deze merken te dragen, representeer je niet alleen je stijl, maar ook je scene.
 
+![](/uploads/kingsday_women.jpg)
+
 ## Oranje, maar maak het modern
 
 Je hoeft niet volledig in het oranje te gaan. Sterker nog, de sterkste outfits blijven juist clean en werken met één subtiel oranje accent. Denk bijvoorbeeld aan een [hoodie](https://www.winkelstraat.nl/designers/croyez/croyez-etiquette-zip-hoodie-oranje-925175a9-869e-4870-a09c-b729e8bfa195.html), sneakers met oranje details, een cap of een graphic tee. Op die manier blijf je helemaal in de Koningsdag vibe, zonder dat je outfit te druk of over-the-top wordt.
@@ -61,7 +63,7 @@ Koningsdag is eigenlijk een marathon, dus je outfit moet daar ook op voorbereid 
 
 Ga op Koningsdag voor comfort en kwaliteit: je sneakers maken of breken je dag. Je staat, loopt en danst uren, dus een goed paar is essentieel. Denk aan betrouwbare modellen van Nike of Adidas, of kies voor iets meer tech en comfort met Salomon. Ook merken zoals ASICS en Saucony zijn sterke opties als je gaat voor support en demping.
 
-## Layering 
+## Layering
 
 Layering is onmisbaar in het Nederlandse weer. Het ene moment schijnt de zon, het volgende moment sta je in de regen. Juist daarom werkt een outfit in lagen het best: een T-shirt onder een hoodie, of een hoodie met een[ licht jacket ](https://www.winkelstraat.nl/designers/gallery-dept/gallery-dept--montecito-jacket--crem--wit--wit-4f9b0d83-e438-468c-b40f-49b0754d60db.html)erover. Zo blijf je flexibel en voorbereid, zonder dat je hoeft in te leveren op stijl.
 

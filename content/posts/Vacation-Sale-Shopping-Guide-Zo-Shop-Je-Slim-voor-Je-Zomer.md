@@ -9,7 +9,7 @@ author: ''
 date: 2026-05-21T00:00:00.000Z
 ---
 
-Het is weer zover: de aantrekkingskracht van afgeprijsde resort wear en zomerse pieces is lastig te weerstaan — maar de kunst zit in gerichte keuzes. Niet álles kopen wat in je cart past, maar shoppen met een oogmerk. Welke items verdienen écht een plek in je zomergarderobe, en welke laat je beter voor wat ze zijn?
+Het is weer zover: de aantrekkingskracht van afgeprijsde resort wear en zomerse pieces is lastig te weerstaan. Maar de kunst zit in gerichte keuzes. Niet álles kopen wat in je cart past, maar shoppen met een oogmerk. Welke items verdienen écht een plek in je zomergarderobe, en welke laat je beter voor wat ze zijn?
 
 ## TL;DR:
 

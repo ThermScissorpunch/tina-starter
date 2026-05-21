@@ -30,15 +30,15 @@ Casablanca silk set, first class energy zonder het ticket
 
 Een matching Casablanca set, zijden shirt en broek in één van hun kenmerkende prints, heeft iets wat weinig andere outfits hebben: het ziet er moeiteloos uit terwijl er duidelijk over nagedacht is. De stof ademt, kreukt nauwelijks en ziet er na vier uur vliegen nog steeds fris uit. Je loopt er in door de aankomsthal en dat is gewoon genoeg.
 
-**Combineer met: **Filling Pieces Low Top Staple en de Keepall Bandoulière voor hands-free comfort.
+\*\*Combineer met: \*\*Filling Pieces Low Top Staple en de Keepall Bandoulière voor hands-free comfort.
 
 ## Meer merken die werken op het vliegveld
 
-**Stone Island: **Een Stone Island shell jacket is de outer layer voor wie niet wil uitleggen waarom zijn jas €800 kost. De compass patch doet dat werk vanzelf. Ideaal voor vroege vluchten of reizen in de herfst.
+**Stone Island:** Een Stone Island shell jacket is de outer layer voor wie niet wil uitleggen waarom zijn jas €800 kost. De compass patch doet dat werk vanzelf. Ideaal voor vroege vluchten of reizen in de herfst.
 
 **Ami Paris:** De beste brug tussen casual en gekleed. Een Ami de Coeur sweater of een goed gesneden Ami chino geeft je een Europese nonchalance waar je niet over hoeft na te denken. Sterk als basis onder een sterkere jas.
 
-**Croyez: **Het Amsterdamse merk levert de streetwear-energie zonder dat het schreeuwt. Een Croyez trackjacket of hoodie in een donkere tint is de perfecte middenweg tussen lounge en statement.
+**Croyez:** Het Amsterdamse merk levert de streetwear-energie zonder dat het schreeuwt. Een Croyez trackjacket of hoodie in een donkere tint is de perfecte middenweg tussen lounge en statement.
 
 **Ganni:** Voor wie niet wil kiezen tussen een jurk en sneakers, dat hoeft ook niet. Een Ganni jurk in een speelse print met een oversized coat en schone sneakers is de reislook die het minste moeite kost.
 

@@ -2,7 +2,7 @@
 category: Blogs
 title: Hoe kleed je je voor het vliegveld?
 slug: hoe-kleed-je-je-voor-het-vliegveld
-heroImg: /uploads/Vacation_sale_designer_hero.png
+heroImg: /uploads/vacation_hero.png
 excerpt: |
   Het vliegveld is geen catwalk, of toch wel. Tussen de FOG Essentials tracksuit en een Casablanca silk set zit de perfecte airport look: bewust casual, nooit slordig. Dit zijn de merken, de stukken en de tips die je nodig hebt.
 author: content/authors/Luna.md

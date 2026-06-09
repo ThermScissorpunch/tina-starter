@@ -51,10 +51,10 @@ De hoodie is een ander verhaal. 480gsm 100% katoen, geen kangaroo pocket voor ee
 
 De stukken zijn ontworpen om samen te werken, maar elk item staat ook op zichzelf.
 
-* De longsleeve: De sleeve print en de eagle graphic geven het genoeg aanwezigheid om solo te dragen boven een baggy short of wijde jeans. Vintage Black voor de avond, Dusty White overdag.
-* De T-shirt en sleeveless tee: De makkelijkste instapers van de capsule. Ze combineren met wat je al hebt en vragen niets, maar voegen altijd iets toe.
-* De hoodie: 480gsm, geen kangaroo pocket, clean silhouet. Dit is niet het stuk dat je meeneemt voor het geval dat. Dit is het stuk dat de hele look bij elkaar trekt als de zon onder is. Over een longsleeve of solo, het werkt in beide gevallen.
-* De cap: Distressed, met rood Mansour borduurwerk, sterk genoeg om een hele look te completeren zonder dat je er verder bij na hoeft te denken.
+* [De longsleeve:](https://www.winkelstraat.nl/designers/mansour/cloud-runner-longsleeve-dusty-white-neutraal-36e95ce6-80ab-4105-af8d-177596f21baa.html) De sleeve print en de eagle graphic geven het genoeg aanwezigheid om solo te dragen boven een baggy short of wijde jeans. Vintage Black voor de avond, Dusty White overdag.
+* [De T-shirt](https://www.winkelstraat.nl/designers/mansour/cloud-runner-t-shirt-vintage-black-zwart-6b0f483d-50e6-47dd-a4af-225bf958a461.html) en [sleeveless tee:](https://www.winkelstraat.nl/designers/mansour/cloud-runner-sleeveless-t-shirt-dusty-white-neutraal-38e4c021-3add-4ff2-b29c-2034e7307644.html) De makkelijkste instapers van de capsule. Ze combineren met wat je al hebt en vragen niets, maar voegen altijd iets toe.
+* [De hoodie: ](https://www.winkelstraat.nl/designers/mansour/cloud-runner-hoodie-vintage-black-zwart-cb09d827-1907-4660-9edb-7f08f885bbdb.html)480gsm, geen kangaroo pocket, clean silhouet. Dit is niet het stuk dat je meeneemt voor het geval dat. Dit is het stuk dat de hele look bij elkaar trekt als de zon onder is. Over een longsleeve of solo, het werkt in beide gevallen.
+* [De cap: ](https://www.winkelstraat.nl/designers/mansour/cloud-runner-cap-zwart-190d81df-fd4e-44d8-97f1-e92a4be3004c.html)Distressed, met rood Mansour borduurwerk, sterk genoeg om een hele look te completeren zonder dat je er verder bij na hoeft te denken.
 
 De Vintage Black en Dusty White colorways combineren onderling, met wat je al in je kledingkast hebt en in elke lichtomstandigheid, van felle middagzon tot festivalverlichting na zonsondergang.
 

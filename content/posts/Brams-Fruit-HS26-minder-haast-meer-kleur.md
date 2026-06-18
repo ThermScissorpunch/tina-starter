@@ -2,7 +2,7 @@
 category: New Drops
 manufacturerCodes:
   - BRAMS_FRUIT
-title: 'Bram''s Fruit H/S''26: minder haast, meer kleur.'
+title: 'Bram''s Fruit H/S''26: minder haast, meer kleur'
 slug: brams-fruit-drop-minder-haast-meer-kleur
 heroImg: /uploads/bf_open.png
 excerpt: |

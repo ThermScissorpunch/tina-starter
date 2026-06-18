@@ -7,7 +7,7 @@ excerpt: |
   Het WK is terug. Nederland doet mee. En dit is het moment om te laten zien dat oranje dragen en oranje goed dragen twee verschillende dingen zijn.
 
   Het vraagt precies één ding: één sterk oranje piece, de rest gewoon je normale outfit. Het shirt doet het werk. Jij hoeft alleen te zorgen dat de rest ook zonder het oranje zou kloppen.
-author: ''
+author: content/authors/Luna.md
 date: 2026-06-19T00:00:00.000Z
 ---
 

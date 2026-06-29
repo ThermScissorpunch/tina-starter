@@ -1,8 +1,8 @@
 ---
 category: Blogs
-title: 'WSNL Closet: de favorieten van stylist Lobke de Dreu'
+title: 'The Stylist Edit: de favorieten van Lobke de Dreu'
 slug: wsnl-closet-lobke-de-dreu
-heroImg: /uploads/Lobke_hero_placeholder.png
+heroImg: /uploads/Lobke_hero.png
 excerpt: |
   Stylist Lobke de Dreu ging door het aanbod van Winkelstraat.nl en koos de stukken die ze zelf in haar winkelmandje zou doen. Van een Ganni bloemenprint jeans tot rode velvet Gucci ballerinas: dit is haar edit.
 author: content/authors/Luna.md

@@ -21,9 +21,7 @@ In de nieuwste aflevering van Matcha Date schuiven we aan bij Sydney Luchies, ee
 
 ## Wie is Sydney?
 
-Sydney Luchies is een creative stylist die haar stempel drukt op de mode- en sportwereld. Met een portfolio dat varieert van strakke campagnes voor Mercedes tot iconische visuals voor Adidas en Puma, weet ze als geen ander hoe je een merkverhaal vertaalt naar de juiste styling. 
-
-##
+Sydney Luchies is een creative stylist die haar stempel drukt op de mode- en sportwereld. Met een portfolio dat varieert van strakke campagnes voor Mercedes tot iconische visuals voor Adidas en Puma, weet ze als geen ander hoe je een merkverhaal vertaalt naar de juiste styling.
 
 ## Inspiratie, iconen en eerlijke fashion keuzes
 

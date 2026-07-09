@@ -1,6 +1,6 @@
 ---
 category: Blogs
-title: Tennis aesthetic. De Wimbledon edit voor 2026
+title: 'Tennis aesthetic: De Wimbledon edit voor 2026'
 slug: wimbledon-edit-2026-tennis-aesthetic
 heroImg: /uploads/wimbledon_hero.png
 excerpt: |
